@@ -1,0 +1,60 @@
+
+# 爱你中文网-最热门的免费小说网|全本小说在线阅读
+
+更新时间：2026-08-14 03:06:33
+
+爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
+
+- https://www.longjiangstone.com/
+
+## 最新小说
+- [你老婆不要你了喔](https://www.longjiangstone.com/book/34apfl/)
+- [衍生穿越合订本](https://www.longjiangstone.com/book/3498tj/)
+- [我的老公是暴君](https://www.longjiangstone.com/book/3486jh/)
+- [让暴君Alpha怀崽后](https://www.longjiangstone.com/book/34846s/)
+- [男朋友买一送一](https://www.longjiangstone.com/book/3480qj/)
+- [今天还不可以造反吗？？？](https://www.longjiangstone.com/book/347v1v/)
+- [穿到法国，但超越者公务员](https://www.longjiangstone.com/book/347l8v/)
+- [全球进化，而我保持不变](https://www.longjiangstone.com/book/a3f1d/)
+- [她是反派的背景板母亲](https://www.longjiangstone.com/book/a3c91/)
+- [沈助理又在隐藏他的超能力](https://www.longjiangstone.com/book/a3a1f/)
+- [[足球]那个德国队新皇](https://www.longjiangstone.com/book/a36v4/)
+- [死遁后冰山O怀了我的崽](https://www.longjiangstone.com/book/a33of/)
+- [七十年代娇美人](https://www.longjiangstone.com/book/a33kl/)
+- [人外收集录［快穿］](https://www.longjiangstone.com/book/a2urt/)
+- [仙侠客栈经营RPG！](https://www.longjiangstone.com/book/a2qks/)
+- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.longjiangstone.com/book/a2qav/)
+- [伪装纨绔，怎么成了名相](https://www.longjiangstone.com/book/a2mct/)
+- [[秦]公子扶苏](https://www.longjiangstone.com/book/a2eft/)
+- [我与龙傲天寿命共享](https://www.longjiangstone.com/book/a2cti/)
+- [小丧尸也要被迫求生吗](https://www.longjiangstone.com/book/a2aoq/)
+- [老公是松散生命体](https://www.longjiangstone.com/book/a2a1j/)
+- [在魔法世界屯田争霸](https://www.longjiangstone.com/book/a2535/)
+- [[希腊神话]基建拯救世界](https://www.longjiangstone.com/book/a23r5/)
+- [黄月光她始乱终弃](https://www.longjiangstone.com/book/a21c3/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.longjiangstone.com/book/a201l/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.longjiangstone.com/book/a1sb7/)
+- [拯救世界从扮演反派开始](https://www.longjiangstone.com/book/a1rdl/)
+- [八零恶毒后妈杀疯了](https://www.longjiangstone.com/book/a1o1s/)
+- [在民俗惊悚片被诸神庇护](https://www.longjiangstone.com/book/a1j3e/)
+- [月亮上的大筒木](https://www.longjiangstone.com/book/102iu/)
+- [贝利珠](https://www.longjiangstone.com/book/36u2/)
+## 相关内容
+- [首页](/site1284/index.md)
+- [最新热点小说](/site1284/newhot.md)
+- [人气小说](/site1284/b111.md)
+- [推荐小说](/site1284/recommend1.md)
+- [推荐小说列表](/site1284/recommend/index.md)
+- [热点小说](/site1284/hot/index.md)
+- [全本小说](/site1284/quanben/index.md)
+- [网站地图](/site1284/sitemap/index.md)
+- [标签](/site1284/tag/index.md)
+- [爱情小说](/site1284/category101/index.md)
+- [武侠小说](/site1284/category102/index.md)
+- [奇幻小说](/site1284/category103/index.md)
+- [仙侠小说](/site1284/category104/index.md)
+- [游戏小说](/site1284/category105/index.md)
+- [传奇小说](/site1284/category106/index.md)
+- [科幻小说](/site1284/category107/index.md)
+- [惊悚小说](/site1284/category109/index.md)
+- [悬疑小说](/site1284/category110/index.md)

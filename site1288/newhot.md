@@ -1,0 +1,60 @@
+
+# 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
+
+更新时间：2026-08-14 03:08:52
+
+读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
+
+- https://www.tiananfoundry.com/
+
+## 最新小说
+- [你老婆不要你了喔](https://www.tiananfoundry.com/book/1ol4bmq/)
+- [我的老公是暴君](https://www.tiananfoundry.com/book/1ol3iv7/)
+- [衍生穿越合订本](https://www.tiananfoundry.com/book/1ol36nk/)
+- [让暴君Alpha怀崽后](https://www.tiananfoundry.com/book/1ol1kf6/)
+- [男朋友买一送一](https://www.tiananfoundry.com/book/1ol1j0v/)
+- [今天还不可以造反吗？？？](https://www.tiananfoundry.com/book/1ol1fc5/)
+- [穿到法国，但超越者公务员](https://www.tiananfoundry.com/book/1ol17ff/)
+- [全球进化，而我保持不变](https://www.tiananfoundry.com/book/1ol10ce/)
+- [她是反派的背景板母亲](https://www.tiananfoundry.com/book/5lcbps/)
+- [沈助理又在隐藏他的超能力](https://www.tiananfoundry.com/book/5lc6gu/)
+- [[足球]那个德国队新皇](https://www.tiananfoundry.com/book/5lc5i4/)
+- [七十年代娇美人](https://www.tiananfoundry.com/book/5lc2v2/)
+- [人外收集录［快穿］](https://www.tiananfoundry.com/book/5lc0fe/)
+- [死遁后冰山O怀了我的崽](https://www.tiananfoundry.com/book/5lbv35/)
+- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.tiananfoundry.com/book/5lbojp/)
+- [仙侠客栈经营RPG！](https://www.tiananfoundry.com/book/5lbmhj/)
+- [伪装纨绔，怎么成了名相](https://www.tiananfoundry.com/book/5lbl9f/)
+- [我与龙傲天寿命共享](https://www.tiananfoundry.com/book/5lbcv4/)
+- [[秦]公子扶苏](https://www.tiananfoundry.com/book/5lbbgv/)
+- [小丧尸也要被迫求生吗](https://www.tiananfoundry.com/book/5lbbca/)
+- [老公是松散生命体](https://www.tiananfoundry.com/book/5lb7v6/)
+- [[希腊神话]基建拯救世界](https://www.tiananfoundry.com/book/5lb3ns/)
+- [黄月光她始乱终弃](https://www.tiananfoundry.com/book/5lb1p3/)
+- [在魔法世界屯田争霸](https://www.tiananfoundry.com/book/5lb0pg/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.tiananfoundry.com/book/5latee/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.tiananfoundry.com/book/5lat9j/)
+- [拯救世界从扮演反派开始](https://www.tiananfoundry.com/book/5laood/)
+- [八零恶毒后妈杀疯了](https://www.tiananfoundry.com/book/5lan99/)
+- [在民俗惊悚片被诸神庇护](https://www.tiananfoundry.com/book/5lagim/)
+- [贝利珠](https://www.tiananfoundry.com/book/1q0i9/)
+- [月亮上的大筒木](https://www.tiananfoundry.com/book/1q0i3/)
+## 相关内容
+- [首页](/site1288/index.md)
+- [最新热点小说](/site1288/newhot.md)
+- [人气小说](/site1288/b111.md)
+- [推荐小说](/site1288/recommend1.md)
+- [推荐小说列表](/site1288/recommend/index.md)
+- [热点小说](/site1288/hot/index.md)
+- [全本小说](/site1288/quanben/index.md)
+- [网站地图](/site1288/sitemap/index.md)
+- [标签](/site1288/tag/index.md)
+- [爱情小说](/site1288/category101/index.md)
+- [武侠小说](/site1288/category102/index.md)
+- [奇幻小说](/site1288/category103/index.md)
+- [仙侠小说](/site1288/category104/index.md)
+- [游戏小说](/site1288/category105/index.md)
+- [传奇小说](/site1288/category106/index.md)
+- [科幻小说](/site1288/category107/index.md)
+- [惊悚小说](/site1288/category109/index.md)
+- [悬疑小说](/site1288/category110/index.md)
