@@ -1,48 +1,56 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-08-14 03:02:39
+更新时间：2026-08-15 03:03:31
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
-- https://www.guoweiyulin.com/
+- [国威御林小说](https://www.guoweiyulin.com/)
 
 ## 最新小说
+- [高调装神，猥琐发育](https://www.guoweiyulin.com/book/360o5ap/)
+- [直男咒术师的限制级游戏](https://www.guoweiyulin.com/book/360nuk5/)
+- [穿到法国，但超越者公务员](https://www.guoweiyulin.com/book/360nu6u/)
 - [我与龙傲天寿命共享](https://www.guoweiyulin.com/book/360np24/)
 - [全球进化，而我保持不变](https://www.guoweiyulin.com/book/360no9r/)
+- [失而复得的白月光[快穿]](https://www.guoweiyulin.com/book/360nmqr/)
 - [[希腊神话]蛇蛇神生美妙](https://www.guoweiyulin.com/book/360nma7/)
+- [病弱小可怜重生揣崽后](https://www.guoweiyulin.com/book/360nlnk/)
 - [如何正确哄睡暴君](https://www.guoweiyulin.com/book/360nl2q/)
 - [[希腊神话]基建拯救世界](https://www.guoweiyulin.com/book/360njp9/)
 - [九零首富的替嫁小媳妇](https://www.guoweiyulin.com/book/360ng1g/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.guoweiyulin.com/book/360ne1p/)
 - [死遁后冰山O怀了我的崽](https://www.guoweiyulin.com/book/360ndld/)
-- [沈助理又在隐藏他的超能力](https://www.guoweiyulin.com/book/360nc2h/)
-- [[足球]那个德国队新皇](https://www.guoweiyulin.com/book/360n6h6/)
+- [我不可能舔一个漂亮捞子](https://www.guoweiyulin.com/book/360nair/)
 - [在民俗惊悚片被诸神庇护](https://www.guoweiyulin.com/book/360n576/)
-- [七十年代娇美人](https://www.guoweiyulin.com/book/360n467/)
-- [人外收集录［快穿］](https://www.guoweiyulin.com/book/360n18m/)
+- [闺蜜就不能是妻子吗](https://www.guoweiyulin.com/book/360n3no/)
 - [月亮上的大筒木](https://www.guoweiyulin.com/book/360n10t/)
+- [误入反派培养直播后](https://www.guoweiyulin.com/book/360mvi9/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.guoweiyulin.com/book/360mv7n/)
-- [仙侠客栈经营RPG！](https://www.guoweiyulin.com/book/360mu1q/)
-- [皇后守则[快穿]](https://www.guoweiyulin.com/book/360mttg/)
+- [在立海大玩网球模拟器](https://www.guoweiyulin.com/book/360mv6e/)
+- [被迫臣服冰山顶级大小姐O](https://www.guoweiyulin.com/book/360mtu6/)
 - [小丧尸也要被迫求生吗](https://www.guoweiyulin.com/book/360mtb5/)
 - [我骗家里的钱养你啊](https://www.guoweiyulin.com/book/360ms42/)
+- [死遁后成了忍界白月光？](https://www.guoweiyulin.com/book/360mrjl/)
+- [如何嫁给当朝首辅](https://www.guoweiyulin.com/book/360mqhm/)
 - [[秦]公子扶苏](https://www.guoweiyulin.com/book/360mqal/)
-- [伪装纨绔，怎么成了名相](https://www.guoweiyulin.com/book/360mp7n/)
 - [他要和我谈恋爱](https://www.guoweiyulin.com/book/360moba/)
 - [微臣怜惜公主](https://www.guoweiyulin.com/book/360mo0f/)
+- [炮灰的我该如何上位？](https://www.guoweiyulin.com/book/360mn7h/)
 - [拯救世界从扮演反派开始](https://www.guoweiyulin.com/book/360mlhn/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.guoweiyulin.com/book/360mlc5/)
 - [黄月光她始乱终弃](https://www.guoweiyulin.com/book/360mlbs/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.guoweiyulin.com/book/360mjf5/)
+- [这谁的沙雕二次元心声！](https://www.guoweiyulin.com/book/360mjnk/)
 - [八零恶毒后妈杀疯了](https://www.guoweiyulin.com/book/360mj2v/)
+- [当了卧底的我发现遍地熟人](https://www.guoweiyulin.com/book/360midl/)
+- [[封神]圣人生欲](https://www.guoweiyulin.com/book/360mgqq/)
 - [纯爱宇智波基本恋爱法](https://www.guoweiyulin.com/book/360mee6/)
 - [老公是松散生命体](https://www.guoweiyulin.com/book/360mdov/)
 - [她是反派的背景板母亲](https://www.guoweiyulin.com/book/360kgu2/)
 - [你老婆不要你了喔](https://www.guoweiyulin.com/book/360kfji/)
 - [在魔法世界屯田争霸](https://www.guoweiyulin.com/book/360kf5m/)
-- [贝利珠](https://www.guoweiyulin.com/book/360ker6/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1344/index.md)
 - [最新热点小说](/site1344/newhot.md)
 - [人气小说](/site1344/b111.md)

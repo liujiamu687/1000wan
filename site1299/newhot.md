@@ -1,45 +1,50 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-14 03:10:01
+更新时间：2026-08-15 03:11:40
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
-- https://www.wsfsx.com/
+- [速阅阁小说网](https://www.wsfsx.com/)
 
 ## 最新小说
+- [纯爱宇智波基本恋爱法](https://www.wsfsx.com/book/5ts2945/)
+- [直男咒术师的限制级游戏](https://www.wsfsx.com/book/5ts291p/)
+- [从异世界穿回来后](https://www.wsfsx.com/book/5ts290s/)
+- [[希腊神话]蛇蛇神生美妙](https://www.wsfsx.com/book/5ts290n/)
 - [你老婆不要你了喔](https://www.wsfsx.com/book/5ts1u3t/)
-- [我的老公是暴君](https://www.wsfsx.com/book/5ts159l/)
+- [昭暮](https://www.wsfsx.com/book/5ts1u37/)
 - [衍生穿越合订本](https://www.wsfsx.com/book/5ts0fh2/)
+- [如何嫁给当朝首辅](https://www.wsfsx.com/book/5trvecb/)
 - [今天还不可以造反吗？？？](https://www.wsfsx.com/book/5trv6hm/)
-- [男朋友买一送一](https://www.wsfsx.com/book/5trv6g0/)
 - [让暴君Alpha怀崽后](https://www.wsfsx.com/book/5trv477/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.wsfsx.com/book/5truoi0/)
 - [穿到法国，但超越者公务员](https://www.wsfsx.com/book/5truofi/)
 - [全球进化，而我保持不变](https://www.wsfsx.com/book/ivloee/)
 - [她是反派的背景板母亲](https://www.wsfsx.com/book/ivlm3t/)
-- [沈助理又在隐藏他的超能力](https://www.wsfsx.com/book/ivli57/)
-- [[足球]那个德国队新皇](https://www.wsfsx.com/book/ivlhgb/)
-- [七十年代娇美人](https://www.wsfsx.com/book/ivlcu6/)
-- [人外收集录［快穿］](https://www.wsfsx.com/book/ivlbsj/)
 - [死遁后冰山O怀了我的崽](https://www.wsfsx.com/book/ivlbf9/)
+- [在立海大玩网球模拟器](https://www.wsfsx.com/book/ivl86l/)
+- [闺蜜就不能是妻子吗](https://www.wsfsx.com/book/ivl82g/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.wsfsx.com/book/ivl5gj/)
-- [仙侠客栈经营RPG！](https://www.wsfsx.com/book/ivl0k0/)
-- [伪装纨绔，怎么成了名相](https://www.wsfsx.com/book/ivkvnm/)
+- [被迫臣服冰山顶级大小姐O](https://www.wsfsx.com/book/ivkvnf/)
+- [当了卧底的我发现遍地熟人](https://www.wsfsx.com/book/ivkrmk/)
 - [[秦]公子扶苏](https://www.wsfsx.com/book/ivkp3a/)
 - [我与龙傲天寿命共享](https://www.wsfsx.com/book/ivknhh/)
+- [死遁后成了忍界白月光？](https://www.wsfsx.com/book/ivkn26/)
+- [这谁的沙雕二次元心声！](https://www.wsfsx.com/book/ivkmp2/)
 - [小丧尸也要被迫求生吗](https://www.wsfsx.com/book/ivklip/)
 - [老公是松散生命体](https://www.wsfsx.com/book/ivkk58/)
 - [在魔法世界屯田争霸](https://www.wsfsx.com/book/ivkgc7/)
 - [[希腊神话]基建拯救世界](https://www.wsfsx.com/book/ivkf4n/)
 - [黄月光她始乱终弃](https://www.wsfsx.com/book/ivke1o/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wsfsx.com/book/ivkaho/)
+- [误入反派培养直播后](https://www.wsfsx.com/book/ivk9ie/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.wsfsx.com/book/ivk896/)
 - [拯救世界从扮演反派开始](https://www.wsfsx.com/book/ivk6la/)
 - [八零恶毒后妈杀疯了](https://www.wsfsx.com/book/ivk410/)
 - [在民俗惊悚片被诸神庇护](https://www.wsfsx.com/book/ivjqq1/)
-- [贝利珠](https://www.wsfsx.com/book/1soame/)
 - [月亮上的大筒木](https://www.wsfsx.com/book/1soa9c/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1299/index.md)
 - [最新热点小说](/site1299/newhot.md)
 - [人气小说](/site1299/b111.md)

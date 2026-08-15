@@ -1,48 +1,56 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-14 03:07:15
+更新时间：2026-08-15 03:08:28
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
-- https://www.pusytgp.com/
+- [左叶小说网](https://www.pusytgp.com/)
 
 ## 最新小说
+- [高调装神，猥琐发育](https://www.pusytgp.com/book/7pbn366/)
+- [穿到法国，但超越者公务员](https://www.pusytgp.com/book/7pbmska/)
+- [直男咒术师的限制级游戏](https://www.pusytgp.com/book/7pbmr4e/)
 - [我与龙傲天寿命共享](https://www.pusytgp.com/book/7pbmnka/)
 - [全球进化，而我保持不变](https://www.pusytgp.com/book/7pbmm0j/)
 - [如何正确哄睡暴君](https://www.pusytgp.com/book/7pbmkpg/)
+- [病弱小可怜重生揣崽后](https://www.pusytgp.com/book/7pbmkk9/)
 - [[希腊神话]蛇蛇神生美妙](https://www.pusytgp.com/book/7pbmjqc/)
+- [失而复得的白月光[快穿]](https://www.pusytgp.com/book/7pbmjnu/)
 - [[希腊神话]基建拯救世界](https://www.pusytgp.com/book/7pbmhk8/)
 - [九零首富的替嫁小媳妇](https://www.pusytgp.com/book/7pbmdh9/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.pusytgp.com/book/7pbmb49/)
 - [死遁后冰山O怀了我的崽](https://www.pusytgp.com/book/7pbma37/)
-- [沈助理又在隐藏他的超能力](https://www.pusytgp.com/book/7pbm95b/)
-- [[足球]那个德国队新皇](https://www.pusytgp.com/book/7pbm65v/)
-- [七十年代娇美人](https://www.pusytgp.com/book/7pbm1an/)
+- [我不可能舔一个漂亮捞子](https://www.pusytgp.com/book/7pbm8q2/)
+- [闺蜜就不能是妻子吗](https://www.pusytgp.com/book/7pbm357/)
 - [在民俗惊悚片被诸神庇护](https://www.pusytgp.com/book/7pbm0km/)
-- [人外收集录［快穿］](https://www.pusytgp.com/book/7pblvoi/)
 - [月亮上的大筒木](https://www.pusytgp.com/book/7pbltu6/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.pusytgp.com/book/7pblscm/)
-- [仙侠客栈经营RPG！](https://www.pusytgp.com/book/7pbls04/)
-- [皇后守则[快穿]](https://www.pusytgp.com/book/7pblqpk/)
+- [在立海大玩网球模拟器](https://www.pusytgp.com/book/7pblrvf/)
+- [被迫臣服冰山顶级大小姐O](https://www.pusytgp.com/book/7pblrlf/)
+- [误入反派培养直播后](https://www.pusytgp.com/book/7pblqoq/)
 - [我骗家里的钱养你啊](https://www.pusytgp.com/book/7pblpkn/)
+- [死遁后成了忍界白月光？](https://www.pusytgp.com/book/7pbloig/)
 - [小丧尸也要被迫求生吗](https://www.pusytgp.com/book/7pblo17/)
 - [[秦]公子扶苏](https://www.pusytgp.com/book/7pbln3q/)
 - [微臣怜惜公主](https://www.pusytgp.com/book/7pblm8r/)
 - [他要和我谈恋爱](https://www.pusytgp.com/book/7pbllof/)
-- [伪装纨绔，怎么成了名相](https://www.pusytgp.com/book/7pblkvf/)
+- [如何嫁给当朝首辅](https://www.pusytgp.com/book/7pbllbd/)
 - [黄月光她始乱终弃](https://www.pusytgp.com/book/7pbljre/)
+- [炮灰的我该如何上位？](https://www.pusytgp.com/book/7pbljpr/)
 - [拯救世界从扮演反派开始](https://www.pusytgp.com/book/7pbljon/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.pusytgp.com/book/7pbljlu/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.pusytgp.com/book/7pblh16/)
+- [这谁的沙雕二次元心声！](https://www.pusytgp.com/book/7pblhka/)
 - [八零恶毒后妈杀疯了](https://www.pusytgp.com/book/7pblgvf/)
+- [当了卧底的我发现遍地熟人](https://www.pusytgp.com/book/7pblfap/)
+- [[封神]圣人生欲](https://www.pusytgp.com/book/7pblds0/)
 - [纯爱宇智波基本恋爱法](https://www.pusytgp.com/book/7pblbln/)
 - [老公是松散生命体](https://www.pusytgp.com/book/7pblagb/)
 - [你老婆不要你了喔](https://www.pusytgp.com/book/7pbjeac/)
 - [她是反派的背景板母亲](https://www.pusytgp.com/book/7pbjdg5/)
 - [在魔法世界屯田争霸](https://www.pusytgp.com/book/7pbjdba/)
-- [贝利珠](https://www.pusytgp.com/book/7pbjd6p/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1343/index.md)
 - [最新热点小说](/site1343/newhot.md)
 - [人气小说](/site1343/b111.md)

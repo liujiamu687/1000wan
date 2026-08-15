@@ -1,48 +1,56 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-08-14 03:08:25
+更新时间：2026-08-15 03:09:46
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
-- https://www.shenyuanhg.com/
+- [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
+- [高调装神，猥琐发育](https://www.shenyuanhg.com/book/7giccbi/)
+- [穿到法国，但超越者公务员](https://www.shenyuanhg.com/book/7gic60f/)
+- [直男咒术师的限制级游戏](https://www.shenyuanhg.com/book/7gic5ii/)
 - [全球进化，而我保持不变](https://www.shenyuanhg.com/book/7gic1i3/)
 - [我与龙傲天寿命共享](https://www.shenyuanhg.com/book/7gibvks/)
 - [[希腊神话]蛇蛇神生美妙](https://www.shenyuanhg.com/book/7gibtvg/)
+- [病弱小可怜重生揣崽后](https://www.shenyuanhg.com/book/7gibt41/)
 - [如何正确哄睡暴君](https://www.shenyuanhg.com/book/7gibt0n/)
+- [失而复得的白月光[快穿]](https://www.shenyuanhg.com/book/7gibsv6/)
 - [[希腊神话]基建拯救世界](https://www.shenyuanhg.com/book/7gibrd1/)
 - [九零首富的替嫁小媳妇](https://www.shenyuanhg.com/book/7gibn9p/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shenyuanhg.com/book/7gibkrv/)
 - [死遁后冰山O怀了我的崽](https://www.shenyuanhg.com/book/7gibjs7/)
-- [沈助理又在隐藏他的超能力](https://www.shenyuanhg.com/book/7gibj48/)
-- [[足球]那个德国队新皇](https://www.shenyuanhg.com/book/7gibfpt/)
+- [我不可能舔一个漂亮捞子](https://www.shenyuanhg.com/book/7gibirk/)
 - [在民俗惊悚片被诸神庇护](https://www.shenyuanhg.com/book/7gibccb/)
-- [七十年代娇美人](https://www.shenyuanhg.com/book/7gibapn/)
-- [人外收集录［快穿］](https://www.shenyuanhg.com/book/7gibae9/)
+- [闺蜜就不能是妻子吗](https://www.shenyuanhg.com/book/7gibb2s/)
 - [月亮上的大筒木](https://www.shenyuanhg.com/book/7gib94v/)
-- [仙侠客栈经营RPG！](https://www.shenyuanhg.com/book/7gib63i/)
-- [皇后守则[快穿]](https://www.shenyuanhg.com/book/7gib4tr/)
+- [误入反派培养直播后](https://www.shenyuanhg.com/book/7gib6j5/)
+- [被迫臣服冰山顶级大小姐O](https://www.shenyuanhg.com/book/7gib5co/)
+- [在立海大玩网球模拟器](https://www.shenyuanhg.com/book/7gib5c4/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.shenyuanhg.com/book/7gib4sn/)
+- [死遁后成了忍界白月光？](https://www.shenyuanhg.com/book/7gib45o/)
 - [我骗家里的钱养你啊](https://www.shenyuanhg.com/book/7gib3ir/)
 - [小丧尸也要被迫求生吗](https://www.shenyuanhg.com/book/7gib2g2/)
-- [伪装纨绔，怎么成了名相](https://www.shenyuanhg.com/book/7gib1jr/)
 - [微臣怜惜公主](https://www.shenyuanhg.com/book/7gib1i6/)
 - [他要和我谈恋爱](https://www.shenyuanhg.com/book/7giavm1/)
+- [如何嫁给当朝首辅](https://www.shenyuanhg.com/book/7giavbe/)
 - [[秦]公子扶苏](https://www.shenyuanhg.com/book/7giautq/)
+- [炮灰的我该如何上位？](https://www.shenyuanhg.com/book/7giau3n/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.shenyuanhg.com/book/7giatpk/)
 - [拯救世界从扮演反派开始](https://www.shenyuanhg.com/book/7giasnr/)
 - [黄月光她始乱终弃](https://www.shenyuanhg.com/book/7giasfk/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shenyuanhg.com/book/7giar1l/)
 - [八零恶毒后妈杀疯了](https://www.shenyuanhg.com/book/7giar0t/)
+- [当了卧底的我发现遍地熟人](https://www.shenyuanhg.com/book/7giaqhm/)
+- [这谁的沙雕二次元心声！](https://www.shenyuanhg.com/book/7giaqau/)
+- [[封神]圣人生欲](https://www.shenyuanhg.com/book/7giambt/)
 - [老公是松散生命体](https://www.shenyuanhg.com/book/7gials6/)
 - [纯爱宇智波基本恋爱法](https://www.shenyuanhg.com/book/7giakjt/)
 - [她是反派的背景板母亲](https://www.shenyuanhg.com/book/7gi8nja/)
 - [在魔法世界屯田争霸](https://www.shenyuanhg.com/book/7gi8nc4/)
-- [贝利珠](https://www.shenyuanhg.com/book/7gi8n3o/)
 - [你老婆不要你了喔](https://www.shenyuanhg.com/book/7gi8m8s/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1341/index.md)
 - [最新热点小说](/site1341/newhot.md)
 - [人气小说](/site1341/b111.md)

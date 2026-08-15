@@ -1,45 +1,49 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-08-14 03:07:19
+更新时间：2026-08-15 03:08:42
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
-- https://www.qingyuchun.com/
+- [笔趣阁啦](https://www.qingyuchun.com/)
 
 ## 最新小说
+- [[希腊神话]蛇蛇神生美妙](https://www.qingyuchun.com/book/10578ap/)
+- [直男咒术师的限制级游戏](https://www.qingyuchun.com/book/105789t/)
+- [纯爱宇智波基本恋爱法](https://www.qingyuchun.com/book/105788k/)
+- [昭暮](https://www.qingyuchun.com/book/1056tbq/)
 - [你老婆不要你了喔](https://www.qingyuchun.com/book/1056tbg/)
 - [衍生穿越合订本](https://www.qingyuchun.com/book/1055801/)
-- [我的老公是暴君](https://www.qingyuchun.com/book/10548h1/)
+- [如何嫁给当朝首辅](https://www.qingyuchun.com/book/1054fnm/)
 - [让暴君Alpha怀崽后](https://www.qingyuchun.com/book/10546l1/)
-- [男朋友买一送一](https://www.qingyuchun.com/book/1054421/)
 - [今天还不可以造反吗？？？](https://www.qingyuchun.com/book/10543qc/)
 - [穿到法国，但超越者公务员](https://www.qingyuchun.com/book/1053nl7/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.qingyuchun.com/book/1053ncu/)
 - [全球进化，而我保持不变](https://www.qingyuchun.com/book/36vqhq/)
 - [她是反派的背景板母亲](https://www.qingyuchun.com/book/36vomi/)
-- [沈助理又在隐藏他的超能力](https://www.qingyuchun.com/book/36vlen/)
-- [[足球]那个德国队新皇](https://www.qingyuchun.com/book/36vhcr/)
 - [死遁后冰山O怀了我的崽](https://www.qingyuchun.com/book/36vf8e/)
-- [七十年代娇美人](https://www.qingyuchun.com/book/36velk/)
-- [人外收集录［快穿］](https://www.qingyuchun.com/book/36vbhd/)
+- [闺蜜就不能是妻子吗](https://www.qingyuchun.com/book/36vbf8/)
+- [在立海大玩网球模拟器](https://www.qingyuchun.com/book/36vai5/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.qingyuchun.com/book/36v736/)
-- [仙侠客栈经营RPG！](https://www.qingyuchun.com/book/36v6e4/)
-- [伪装纨绔，怎么成了名相](https://www.qingyuchun.com/book/36v30u/)
+- [被迫臣服冰山顶级大小姐O](https://www.qingyuchun.com/book/36v4dk/)
+- [当了卧底的我发现遍地熟人](https://www.qingyuchun.com/book/36uu18/)
 - [我与龙傲天寿命共享](https://www.qingyuchun.com/book/36uqil/)
+- [死遁后成了忍界白月光？](https://www.qingyuchun.com/book/36uppb/)
 - [[秦]公子扶苏](https://www.qingyuchun.com/book/36upnm/)
+- [这谁的沙雕二次元心声！](https://www.qingyuchun.com/book/36uon7/)
 - [小丧尸也要被迫求生吗](https://www.qingyuchun.com/book/36uo7q/)
 - [老公是松散生命体](https://www.qingyuchun.com/book/36umob/)
 - [在魔法世界屯田争霸](https://www.qingyuchun.com/book/36uh4s/)
 - [[希腊神话]基建拯救世界](https://www.qingyuchun.com/book/36uge3/)
 - [黄月光她始乱终弃](https://www.qingyuchun.com/book/36ug3o/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.qingyuchun.com/book/36uate/)
+- [误入反派培养直播后](https://www.qingyuchun.com/book/36ufnk/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.qingyuchun.com/book/36uahu/)
 - [拯救世界从扮演反派开始](https://www.qingyuchun.com/book/36u8kj/)
 - [八零恶毒后妈杀疯了](https://www.qingyuchun.com/book/36u4nt/)
 - [在民俗惊悚片被诸神庇护](https://www.qingyuchun.com/book/36u052/)
-- [贝利珠](https://www.qingyuchun.com/book/39du/)
 - [月亮上的大筒木](https://www.qingyuchun.com/book/39cu/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1291/index.md)
 - [最新热点小说](/site1291/newhot.md)
 - [人气小说](/site1291/b111.md)

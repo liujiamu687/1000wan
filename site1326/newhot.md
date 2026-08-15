@@ -1,45 +1,50 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-08-14 03:12:54
+更新时间：2026-08-15 03:14:31
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
-- https://www.znenghs.com/
+- [欣怡书屋](https://www.znenghs.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.znenghs.com/book/5n2k8ql/)
+- [[希腊神话]蛇蛇神生美妙](https://www.znenghs.com/book/5n2k8qg/)
+- [直男咒术师的限制级游戏](https://www.znenghs.com/book/5n2k8nt/)
+- [纯爱宇智波基本恋爱法](https://www.znenghs.com/book/5n2k8nf/)
 - [你老婆不要你了喔](https://www.znenghs.com/book/5n2jtre/)
-- [我的老公是暴君](https://www.znenghs.com/book/5n2j50e/)
+- [昭暮](https://www.znenghs.com/book/5n2jtr8/)
 - [衍生穿越合订本](https://www.znenghs.com/book/5n2iomc/)
-- [男朋友买一送一](https://www.znenghs.com/book/5n2h5os/)
+- [如何嫁给当朝首辅](https://www.znenghs.com/book/5n2hecj/)
 - [让暴君Alpha怀崽后](https://www.znenghs.com/book/5n2h44u/)
 - [今天还不可以造反吗？？？](https://www.znenghs.com/book/5n2h204/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.znenghs.com/book/5n2gqt9/)
 - [穿到法国，但超越者公务员](https://www.znenghs.com/book/5n2gpb7/)
 - [全球进化，而我保持不变](https://www.znenghs.com/book/5n2ghen/)
 - [她是反派的背景板母亲](https://www.znenghs.com/book/i9ttj4/)
-- [沈助理又在隐藏他的超能力](https://www.znenghs.com/book/i9tpf4/)
-- [[足球]那个德国队新皇](https://www.znenghs.com/book/i9tnsm/)
-- [七十年代娇美人](https://www.znenghs.com/book/i9tk9p/)
 - [死遁后冰山O怀了我的崽](https://www.znenghs.com/book/i9tgrj/)
-- [人外收集录［快穿］](https://www.znenghs.com/book/i9tg6a/)
+- [闺蜜就不能是妻子吗](https://www.znenghs.com/book/i9te3p/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.znenghs.com/book/i9tai1/)
-- [仙侠客栈经营RPG！](https://www.znenghs.com/book/i9t8ol/)
-- [伪装纨绔，怎么成了名相](https://www.znenghs.com/book/i9t64s/)
+- [在立海大玩网球模拟器](https://www.znenghs.com/book/i9t9r1/)
+- [被迫臣服冰山顶级大小姐O](https://www.znenghs.com/book/i9t6li/)
+- [当了卧底的我发现遍地熟人](https://www.znenghs.com/book/i9t16l/)
 - [我与龙傲天寿命共享](https://www.znenghs.com/book/i9sv3e/)
 - [[秦]公子扶苏](https://www.znenghs.com/book/i9supf/)
+- [这谁的沙雕二次元心声！](https://www.znenghs.com/book/i9sthj/)
+- [死遁后成了忍界白月光？](https://www.znenghs.com/book/i9ss17/)
 - [小丧尸也要被迫求生吗](https://www.znenghs.com/book/i9srii/)
 - [老公是松散生命体](https://www.znenghs.com/book/i9sptm/)
 - [在魔法世界屯田争霸](https://www.znenghs.com/book/i9sm5s/)
 - [[希腊神话]基建拯救世界](https://www.znenghs.com/book/i9sm5b/)
 - [黄月光她始乱终弃](https://www.znenghs.com/book/i9sidm/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.znenghs.com/book/i9sf47/)
+- [误入反派培养直播后](https://www.znenghs.com/book/i9sh6m/)
 - [拯救世界从扮演反派开始](https://www.znenghs.com/book/i9sca6/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.znenghs.com/book/i9sc7q/)
 - [八零恶毒后妈杀疯了](https://www.znenghs.com/book/i9saao/)
 - [在民俗惊悚片被诸神庇护](https://www.znenghs.com/book/i9s40j/)
-- [贝利珠](https://www.znenghs.com/book/5rfcb/)
 - [月亮上的大筒木](https://www.znenghs.com/book/5rf6m/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1326/index.md)
 - [最新热点小说](/site1326/newhot.md)
 - [人气小说](/site1326/b111.md)

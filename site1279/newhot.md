@@ -1,45 +1,50 @@
 
 # 奇书网TXT电子书免费下载,全集下载,全本完本小说
 
-更新时间：2026-08-14 03:09:14
+更新时间：2026-08-15 03:10:43
 
 奇书网官网提供大量TXT格式的电子书免费下载服务，包括但不限于全集、全本以及完结的小说。所有资源均由网友分享上传，旨在为广大读者提供优质便捷的阅读体验。
 
-- https://www.wanjiacloud.com/
+- [奇书网](https://www.wanjiacloud.com/)
 
 ## 最新小说
+- [直男咒术师的限制级游戏](https://www.wanjiacloud.com/book/35di3k0/)
+- [从异世界穿回来后](https://www.wanjiacloud.com/book/35di3j3/)
+- [纯爱宇智波基本恋爱法](https://www.wanjiacloud.com/book/35di3ho/)
+- [[希腊神话]蛇蛇神生美妙](https://www.wanjiacloud.com/book/35di3f6/)
+- [昭暮](https://www.wanjiacloud.com/book/35dhoju/)
 - [你老婆不要你了喔](https://www.wanjiacloud.com/book/35dhoja/)
-- [我的老公是暴君](https://www.wanjiacloud.com/book/35dgvp8/)
 - [衍生穿越合订本](https://www.wanjiacloud.com/book/35dgkeo/)
+- [如何嫁给当朝首辅](https://www.wanjiacloud.com/book/35df9pr/)
 - [让暴君Alpha怀崽后](https://www.wanjiacloud.com/book/35df1pe/)
-- [男朋友买一送一](https://www.wanjiacloud.com/book/35df06h/)
 - [今天还不可以造反吗？？？](https://www.wanjiacloud.com/book/35detlt/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.wanjiacloud.com/book/35deju1/)
 - [穿到法国，但超越者公务员](https://www.wanjiacloud.com/book/35dejhf/)
 - [全球进化，而我保持不变](https://www.wanjiacloud.com/book/35ded0s/)
 - [她是反派的背景板母亲](https://www.wanjiacloud.com/book/a4k3dl/)
-- [沈助理又在隐藏他的超能力](https://www.wanjiacloud.com/book/a4jssi/)
-- [[足球]那个德国队新皇](https://www.wanjiacloud.com/book/a4jsf4/)
-- [七十年代娇美人](https://www.wanjiacloud.com/book/a4jqck/)
-- [人外收集录［快穿］](https://www.wanjiacloud.com/book/a4jnoi/)
 - [死遁后冰山O怀了我的崽](https://www.wanjiacloud.com/book/a4jnc6/)
+- [闺蜜就不能是妻子吗](https://www.wanjiacloud.com/book/a4jkt9/)
+- [在立海大玩网球模拟器](https://www.wanjiacloud.com/book/a4ji33/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.wanjiacloud.com/book/a4ji0r/)
-- [仙侠客栈经营RPG！](https://www.wanjiacloud.com/book/a4jefm/)
-- [伪装纨绔，怎么成了名相](https://www.wanjiacloud.com/book/a4jb85/)
+- [被迫臣服冰山顶级大小姐O](https://www.wanjiacloud.com/book/a4jaf3/)
+- [当了卧底的我发现遍地熟人](https://www.wanjiacloud.com/book/a4j8a5/)
 - [我与龙傲天寿命共享](https://www.wanjiacloud.com/book/a4j4bq/)
 - [[秦]公子扶苏](https://www.wanjiacloud.com/book/a4j3f9/)
+- [这谁的沙雕二次元心声！](https://www.wanjiacloud.com/book/a4j24j/)
 - [小丧尸也要被迫求生吗](https://www.wanjiacloud.com/book/a4j1e3/)
+- [死遁后成了忍界白月光？](https://www.wanjiacloud.com/book/a4j1d7/)
 - [老公是松散生命体](https://www.wanjiacloud.com/book/a4ivbc/)
 - [[希腊神话]基建拯救世界](https://www.wanjiacloud.com/book/a4isji/)
 - [在魔法世界屯田争霸](https://www.wanjiacloud.com/book/a4iqnp/)
 - [黄月光她始乱终弃](https://www.wanjiacloud.com/book/a4iq20/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wanjiacloud.com/book/a4inie/)
+- [误入反派培养直播后](https://www.wanjiacloud.com/book/a4inc1/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.wanjiacloud.com/book/a4ijr1/)
 - [拯救世界从扮演反派开始](https://www.wanjiacloud.com/book/a4ijmm/)
 - [八零恶毒后妈杀疯了](https://www.wanjiacloud.com/book/a4ic7a/)
 - [在民俗惊悚片被诸神庇护](https://www.wanjiacloud.com/book/a4i6ar/)
-- [贝利珠](https://www.wanjiacloud.com/book/10ei8a/)
 - [月亮上的大筒木](https://www.wanjiacloud.com/book/10ehco/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1279/index.md)
 - [最新热点小说](/site1279/newhot.md)
 - [人气小说](/site1279/b111.md)

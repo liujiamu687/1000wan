@@ -1,45 +1,49 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-14 03:12:33
+更新时间：2026-08-15 03:14:10
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
-- https://www.ziyuhai.com/
+- [自由屋](https://www.ziyuhai.com/)
 
 ## 最新小说
+- [纯爱宇智波基本恋爱法](https://www.ziyuhai.com/book/84rn4so/)
+- [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
+- [[希腊神话]蛇蛇神生美妙](https://www.ziyuhai.com/book/84rn4ro/)
+- [昭暮](https://www.ziyuhai.com/book/84rmq1q/)
 - [你老婆不要你了喔](https://www.ziyuhai.com/book/84rmpvj/)
 - [衍生穿越合订本](https://www.ziyuhai.com/book/84rle4r/)
-- [我的老公是暴君](https://www.ziyuhai.com/book/84rk7lg/)
+- [如何嫁给当朝首辅](https://www.ziyuhai.com/book/84rkcbo/)
 - [让暴君Alpha怀崽后](https://www.ziyuhai.com/book/84rk3ik/)
-- [男朋友买一送一](https://www.ziyuhai.com/book/84rk0l8/)
 - [今天还不可以造反吗？？？](https://www.ziyuhai.com/book/84rjvh1/)
 - [穿到法国，但超越者公务员](https://www.ziyuhai.com/book/84rjkd5/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.ziyuhai.com/book/84rjkc6/)
 - [全球进化，而我保持不变](https://www.ziyuhai.com/book/q2r2lo/)
 - [她是反派的背景板母亲](https://www.ziyuhai.com/book/q2r074/)
-- [沈助理又在隐藏他的超能力](https://www.ziyuhai.com/book/q2qrpa/)
-- [[足球]那个德国队新皇](https://www.ziyuhai.com/book/q2qor0/)
 - [死遁后冰山O怀了我的崽](https://www.ziyuhai.com/book/q2qm87/)
-- [七十年代娇美人](https://www.ziyuhai.com/book/q2ql5p/)
-- [人外收集录［快穿］](https://www.ziyuhai.com/book/q2qi1v/)
-- [仙侠客栈经营RPG！](https://www.ziyuhai.com/book/q2qcq0/)
+- [在立海大玩网球模拟器](https://www.ziyuhai.com/book/q2qg1b/)
+- [闺蜜就不能是妻子吗](https://www.ziyuhai.com/book/q2qf09/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.ziyuhai.com/book/q2qcco/)
-- [伪装纨绔，怎么成了名相](https://www.ziyuhai.com/book/q2q96i/)
+- [被迫臣服冰山顶级大小姐O](https://www.ziyuhai.com/book/q2q98q/)
+- [当了卧底的我发现遍地熟人](https://www.ziyuhai.com/book/q2q5lc/)
 - [[秦]公子扶苏](https://www.ziyuhai.com/book/q2q2gb/)
 - [我与龙傲天寿命共享](https://www.ziyuhai.com/book/q2q1sv/)
+- [死遁后成了忍界白月光？](https://www.ziyuhai.com/book/q2pucr/)
+- [这谁的沙雕二次元心声！](https://www.ziyuhai.com/book/q2ptab/)
 - [老公是松散生命体](https://www.ziyuhai.com/book/q2pt2v/)
 - [小丧尸也要被迫求生吗](https://www.ziyuhai.com/book/q2pspu/)
 - [[希腊神话]基建拯救世界](https://www.ziyuhai.com/book/q2pn67/)
 - [在魔法世界屯田争霸](https://www.ziyuhai.com/book/q2pn1d/)
 - [黄月光她始乱终弃](https://www.ziyuhai.com/book/q2pml5/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ziyuhai.com/book/q2pj08/)
+- [误入反派培养直播后](https://www.ziyuhai.com/book/q2pm7h/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.ziyuhai.com/book/q2peps/)
 - [拯救世界从扮演反派开始](https://www.ziyuhai.com/book/q2pecm/)
 - [八零恶毒后妈杀疯了](https://www.ziyuhai.com/book/q2pbsc/)
 - [在民俗惊悚片被诸神庇护](https://www.ziyuhai.com/book/q2p57s/)
 - [月亮上的大筒木](https://www.ziyuhai.com/book/2jf97e/)
-- [贝利珠](https://www.ziyuhai.com/book/2jf8ab/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1278/index.md)
 - [最新热点小说](/site1278/newhot.md)
 - [人气小说](/site1278/b111.md)

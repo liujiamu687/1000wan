@@ -1,45 +1,50 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-14 03:08:52
+更新时间：2026-08-15 03:10:22
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
-- https://www.tiananfoundry.com/
+- [读读窝小说网](https://www.tiananfoundry.com/)
 
 ## 最新小说
+- [纯爱宇智波基本恋爱法](https://www.tiananfoundry.com/book/1ol4mnj/)
+- [直男咒术师的限制级游戏](https://www.tiananfoundry.com/book/1ol4mn6/)
+- [[希腊神话]蛇蛇神生美妙](https://www.tiananfoundry.com/book/1ol4mm5/)
+- [从异世界穿回来后](https://www.tiananfoundry.com/book/1ol4mkp/)
 - [你老婆不要你了喔](https://www.tiananfoundry.com/book/1ol4bmq/)
-- [我的老公是暴君](https://www.tiananfoundry.com/book/1ol3iv7/)
+- [昭暮](https://www.tiananfoundry.com/book/1ol4bmn/)
 - [衍生穿越合订本](https://www.tiananfoundry.com/book/1ol36nk/)
+- [如何嫁给当朝首辅](https://www.tiananfoundry.com/book/1ol1sp3/)
 - [让暴君Alpha怀崽后](https://www.tiananfoundry.com/book/1ol1kf6/)
-- [男朋友买一送一](https://www.tiananfoundry.com/book/1ol1j0v/)
 - [今天还不可以造反吗？？？](https://www.tiananfoundry.com/book/1ol1fc5/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.tiananfoundry.com/book/1ol17iq/)
 - [穿到法国，但超越者公务员](https://www.tiananfoundry.com/book/1ol17ff/)
 - [全球进化，而我保持不变](https://www.tiananfoundry.com/book/1ol10ce/)
 - [她是反派的背景板母亲](https://www.tiananfoundry.com/book/5lcbps/)
-- [沈助理又在隐藏他的超能力](https://www.tiananfoundry.com/book/5lc6gu/)
-- [[足球]那个德国队新皇](https://www.tiananfoundry.com/book/5lc5i4/)
-- [七十年代娇美人](https://www.tiananfoundry.com/book/5lc2v2/)
-- [人外收集录［快穿］](https://www.tiananfoundry.com/book/5lc0fe/)
 - [死遁后冰山O怀了我的崽](https://www.tiananfoundry.com/book/5lbv35/)
+- [闺蜜就不能是妻子吗](https://www.tiananfoundry.com/book/5lbtam/)
+- [在立海大玩网球模拟器](https://www.tiananfoundry.com/book/5lbp07/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.tiananfoundry.com/book/5lbojp/)
-- [仙侠客栈经营RPG！](https://www.tiananfoundry.com/book/5lbmhj/)
-- [伪装纨绔，怎么成了名相](https://www.tiananfoundry.com/book/5lbl9f/)
+- [被迫臣服冰山顶级大小姐O](https://www.tiananfoundry.com/book/5lbk9g/)
+- [当了卧底的我发现遍地熟人](https://www.tiananfoundry.com/book/5lbh84/)
 - [我与龙傲天寿命共享](https://www.tiananfoundry.com/book/5lbcv4/)
+- [这谁的沙雕二次元心声！](https://www.tiananfoundry.com/book/5lbbn6/)
 - [[秦]公子扶苏](https://www.tiananfoundry.com/book/5lbbgv/)
 - [小丧尸也要被迫求生吗](https://www.tiananfoundry.com/book/5lbbca/)
+- [死遁后成了忍界白月光？](https://www.tiananfoundry.com/book/5lb9v8/)
 - [老公是松散生命体](https://www.tiananfoundry.com/book/5lb7v6/)
 - [[希腊神话]基建拯救世界](https://www.tiananfoundry.com/book/5lb3ns/)
 - [黄月光她始乱终弃](https://www.tiananfoundry.com/book/5lb1p3/)
 - [在魔法世界屯田争霸](https://www.tiananfoundry.com/book/5lb0pg/)
+- [误入反派培养直播后](https://www.tiananfoundry.com/book/5lb05p/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.tiananfoundry.com/book/5latee/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.tiananfoundry.com/book/5lat9j/)
 - [拯救世界从扮演反派开始](https://www.tiananfoundry.com/book/5laood/)
 - [八零恶毒后妈杀疯了](https://www.tiananfoundry.com/book/5lan99/)
 - [在民俗惊悚片被诸神庇护](https://www.tiananfoundry.com/book/5lagim/)
-- [贝利珠](https://www.tiananfoundry.com/book/1q0i9/)
 - [月亮上的大筒木](https://www.tiananfoundry.com/book/1q0i3/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1288/index.md)
 - [最新热点小说](/site1288/newhot.md)
 - [人气小说](/site1288/b111.md)

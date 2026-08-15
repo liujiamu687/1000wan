@@ -1,48 +1,56 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-14 03:02:04
+更新时间：2026-08-15 03:02:29
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
-- https://www.cq082.com/
+- [随梦小说网](https://www.cq082.com/)
 
 ## 最新小说
+- [高调装神，猥琐发育](https://www.cq082.com/book/1sddldh/)
+- [穿到法国，但超越者公务员](https://www.cq082.com/book/1sddepf/)
+- [直男咒术师的限制级游戏](https://www.cq082.com/book/1sddd6r/)
 - [我与龙傲天寿命共享](https://www.cq082.com/book/1sdd9h3/)
 - [全球进化，而我保持不变](https://www.cq082.com/book/1sdd8o5/)
+- [病弱小可怜重生揣崽后](https://www.cq082.com/book/1sdd670/)
 - [如何正确哄睡暴君](https://www.cq082.com/book/1sdd5hl/)
 - [[希腊神话]蛇蛇神生美妙](https://www.cq082.com/book/1sdd4nt/)
+- [失而复得的白月光[快穿]](https://www.cq082.com/book/1sdd42b/)
 - [[希腊神话]基建拯救世界](https://www.cq082.com/book/1sdd11e/)
 - [九零首富的替嫁小媳妇](https://www.cq082.com/book/1sdcuia/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.cq082.com/book/1sdctb3/)
 - [死遁后冰山O怀了我的崽](https://www.cq082.com/book/1sdcr7h/)
-- [沈助理又在隐藏他的超能力](https://www.cq082.com/book/1sdcooh/)
-- [[足球]那个德国队新皇](https://www.cq082.com/book/1sdcldt/)
-- [七十年代娇美人](https://www.cq082.com/book/1sdcj59/)
+- [我不可能舔一个漂亮捞子](https://www.cq082.com/book/1sdcr05/)
 - [在民俗惊悚片被诸神庇护](https://www.cq082.com/book/1sdcins/)
-- [人外收集录［快穿］](https://www.cq082.com/book/1sdcgjg/)
+- [闺蜜就不能是妻子吗](https://www.cq082.com/book/1sdci8f/)
 - [月亮上的大筒木](https://www.cq082.com/book/1sdcg8l/)
-- [皇后守则[快穿]](https://www.cq082.com/book/1sdceu9/)
-- [仙侠客栈经营RPG！](https://www.cq082.com/book/1sdcduq/)
+- [在立海大玩网球模拟器](https://www.cq082.com/book/1sdcdrr/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.cq082.com/book/1sdcd99/)
+- [误入反派培养直播后](https://www.cq082.com/book/1sdccrf/)
+- [被迫臣服冰山顶级大小姐O](https://www.cq082.com/book/1sdccr4/)
 - [小丧尸也要被迫求生吗](https://www.cq082.com/book/1sdca6v/)
 - [我骗家里的钱养你啊](https://www.cq082.com/book/1sdca6s/)
-- [伪装纨绔，怎么成了名相](https://www.cq082.com/book/1sdc901/)
+- [死遁后成了忍界白月光？](https://www.cq082.com/book/1sdca31/)
+- [如何嫁给当朝首辅](https://www.cq082.com/book/1sdc95p/)
 - [[秦]公子扶苏](https://www.cq082.com/book/1sdc8rt/)
 - [他要和我谈恋爱](https://www.cq082.com/book/1sdc84h/)
 - [微臣怜惜公主](https://www.cq082.com/book/1sdc6r4/)
 - [黄月光她始乱终弃](https://www.cq082.com/book/1sdc5cf/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.cq082.com/book/1sdc4ug/)
 - [拯救世界从扮演反派开始](https://www.cq082.com/book/1sdc4f3/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.cq082.com/book/1sdc3ii/)
+- [炮灰的我该如何上位？](https://www.cq082.com/book/1sdc4el/)
 - [八零恶毒后妈杀疯了](https://www.cq082.com/book/1sdc2q3/)
+- [这谁的沙雕二次元心声！](https://www.cq082.com/book/1sdc174/)
+- [当了卧底的我发现遍地熟人](https://www.cq082.com/book/1sdc0u5/)
+- [[封神]圣人生欲](https://www.cq082.com/book/1sdbtuo/)
 - [老公是松散生命体](https://www.cq082.com/book/1sdbtcc/)
 - [纯爱宇智波基本恋爱法](https://www.cq082.com/book/1sdbrua/)
 - [在魔法世界屯田争霸](https://www.cq082.com/book/1sd9vm3/)
-- [贝利珠](https://www.cq082.com/book/1sd9vg9/)
 - [她是反派的背景板母亲](https://www.cq082.com/book/1sd9tll/)
 - [你老婆不要你了喔](https://www.cq082.com/book/1sd9tk0/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1337/index.md)
 - [最新热点小说](/site1337/newhot.md)
 - [人气小说](/site1337/b111.md)

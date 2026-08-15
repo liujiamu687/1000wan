@@ -1,45 +1,49 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-08-14 03:04:16
+更新时间：2026-08-15 03:05:25
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
-- https://www.kangrunwangye.com/
+- [笔趣阁](https://www.kangrunwangye.com/)
 
 ## 最新小说
+- [[希腊神话]蛇蛇神生美妙](https://www.kangrunwangye.com/book/1o9mfur/)
+- [纯爱宇智波基本恋爱法](https://www.kangrunwangye.com/book/1o9mftb/)
+- [直男咒术师的限制级游戏](https://www.kangrunwangye.com/book/1o9mfri/)
 - [你老婆不要你了喔](https://www.kangrunwangye.com/book/1o9m4vg/)
+- [昭暮](https://www.kangrunwangye.com/book/1o9m4us/)
 - [衍生穿越合订本](https://www.kangrunwangye.com/book/1o9ku3o/)
-- [我的老公是暴君](https://www.kangrunwangye.com/book/1o9jj4p/)
+- [如何嫁给当朝首辅](https://www.kangrunwangye.com/book/1o9jnso/)
 - [让暴君Alpha怀崽后](https://www.kangrunwangye.com/book/1o9jf62/)
-- [男朋友买一送一](https://www.kangrunwangye.com/book/1o9jat9/)
 - [今天还不可以造反吗？？？](https://www.kangrunwangye.com/book/1o9jaj5/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.kangrunwangye.com/book/1o9j1c9/)
 - [穿到法国，但超越者公务员](https://www.kangrunwangye.com/book/1o9j0d4/)
 - [全球进化，而我保持不变](https://www.kangrunwangye.com/book/5k7q1a/)
 - [她是反派的背景板母亲](https://www.kangrunwangye.com/book/5k7nro/)
-- [沈助理又在隐藏他的超能力](https://www.kangrunwangye.com/book/5k7iof/)
-- [[足球]那个德国队新皇](https://www.kangrunwangye.com/book/5k7hur/)
 - [死遁后冰山O怀了我的崽](https://www.kangrunwangye.com/book/5k7e5j/)
-- [七十年代娇美人](https://www.kangrunwangye.com/book/5k7d7f/)
-- [人外收集录［快穿］](https://www.kangrunwangye.com/book/5k7bej/)
+- [在立海大玩网球模拟器](https://www.kangrunwangye.com/book/5k78m4/)
+- [闺蜜就不能是妻子吗](https://www.kangrunwangye.com/book/5k78gr/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.kangrunwangye.com/book/5k75l1/)
-- [伪装纨绔，怎么成了名相](https://www.kangrunwangye.com/book/5k710b/)
-- [仙侠客栈经营RPG！](https://www.kangrunwangye.com/book/5k70sk/)
+- [被迫臣服冰山顶级大小姐O](https://www.kangrunwangye.com/book/5k72bl/)
+- [当了卧底的我发现遍地熟人](https://www.kangrunwangye.com/book/5k6re6/)
 - [我与龙傲天寿命共享](https://www.kangrunwangye.com/book/5k6pgf/)
 - [[秦]公子扶苏](https://www.kangrunwangye.com/book/5k6oup/)
+- [死遁后成了忍界白月光？](https://www.kangrunwangye.com/book/5k6lr7/)
 - [小丧尸也要被迫求生吗](https://www.kangrunwangye.com/book/5k6lm4/)
 - [老公是松散生命体](https://www.kangrunwangye.com/book/5k6kss/)
+- [这谁的沙雕二次元心声！](https://www.kangrunwangye.com/book/5k6kik/)
 - [在魔法世界屯田争霸](https://www.kangrunwangye.com/book/5k6gpk/)
 - [[希腊神话]基建拯救世界](https://www.kangrunwangye.com/book/5k6gda/)
+- [误入反派培养直播后](https://www.kangrunwangye.com/book/5k6dk8/)
 - [黄月光她始乱终弃](https://www.kangrunwangye.com/book/5k6co7/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kangrunwangye.com/book/5k68v4/)
 - [拯救世界从扮演反派开始](https://www.kangrunwangye.com/book/5k67r2/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.kangrunwangye.com/book/5k65n7/)
 - [八零恶毒后妈杀疯了](https://www.kangrunwangye.com/book/5k638i/)
 - [在民俗惊悚片被诸神庇护](https://www.kangrunwangye.com/book/5k5tl9/)
-- [贝利珠](https://www.kangrunwangye.com/book/i0i0p/)
 - [月亮上的大筒木](https://www.kangrunwangye.com/book/1pl7v/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1297/index.md)
 - [最新热点小说](/site1297/newhot.md)
 - [人气小说](/site1297/b111.md)

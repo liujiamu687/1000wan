@@ -1,45 +1,50 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-08-14 03:02:43
+更新时间：2026-08-15 03:03:45
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
-- https://www.gushi1314.com/
+- [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
+- [直男咒术师的限制级游戏](https://www.gushi1314.com/book/8m9ju1p/)
+- [[希腊神话]蛇蛇神生美妙](https://www.gushi1314.com/book/8m9ju07/)
+- [从异世界穿回来后](https://www.gushi1314.com/book/8m9jtuv/)
+- [纯爱宇智波基本恋爱法](https://www.gushi1314.com/book/8m9jtta/)
+- [昭暮](https://www.gushi1314.com/book/8m9jj3h/)
 - [你老婆不要你了喔](https://www.gushi1314.com/book/8m9jj1h/)
-- [我的老公是暴君](https://www.gushi1314.com/book/8m9iq80/)
 - [衍生穿越合订本](https://www.gushi1314.com/book/8m9hvta/)
-- [男朋友买一送一](https://www.gushi1314.com/book/8m9gq8p/)
+- [如何嫁给当朝首辅](https://www.gushi1314.com/book/8m9h47n/)
 - [让暴君Alpha怀崽后](https://www.gushi1314.com/book/8m9gpuo/)
 - [今天还不可以造反吗？？？](https://www.gushi1314.com/book/8m9gn9h/)
 - [穿到法国，但超越者公务员](https://www.gushi1314.com/book/8m9gfq7/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.gushi1314.com/book/8m9gf00/)
 - [全球进化，而我保持不变](https://www.gushi1314.com/book/8m9g7m3/)
 - [她是反派的背景板母亲](https://www.gushi1314.com/book/rqk9q7/)
-- [沈助理又在隐藏他的超能力](https://www.gushi1314.com/book/rqk36j/)
-- [[足球]那个德国队新皇](https://www.gushi1314.com/book/rqk1p6/)
-- [七十年代娇美人](https://www.gushi1314.com/book/rqk0jf/)
 - [死遁后冰山O怀了我的崽](https://www.gushi1314.com/book/rqjupm/)
-- [人外收集录［快穿］](https://www.gushi1314.com/book/rqjtsj/)
+- [闺蜜就不能是妻子吗](https://www.gushi1314.com/book/rqjrks/)
+- [在立海大玩网球模拟器](https://www.gushi1314.com/book/rqjolg/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.gushi1314.com/book/rqjmj0/)
-- [仙侠客栈经营RPG！](https://www.gushi1314.com/book/rqjjll/)
-- [伪装纨绔，怎么成了名相](https://www.gushi1314.com/book/rqjhnu/)
+- [被迫臣服冰山顶级大小姐O](https://www.gushi1314.com/book/rqjgl5/)
+- [当了卧底的我发现遍地熟人](https://www.gushi1314.com/book/rqjds0/)
 - [我与龙傲天寿命共享](https://www.gushi1314.com/book/rqjanf/)
+- [这谁的沙雕二次元心声！](https://www.gushi1314.com/book/rqj9pb/)
+- [死遁后成了忍界白月光？](https://www.gushi1314.com/book/rqj96b/)
 - [小丧尸也要被迫求生吗](https://www.gushi1314.com/book/rqj8c8/)
 - [[秦]公子扶苏](https://www.gushi1314.com/book/rqj7k5/)
 - [老公是松散生命体](https://www.gushi1314.com/book/rqj719/)
 - [[希腊神话]基建拯救世界](https://www.gushi1314.com/book/rqj385/)
 - [黄月光她始乱终弃](https://www.gushi1314.com/book/rqivqv/)
 - [在魔法世界屯田争霸](https://www.gushi1314.com/book/rqivm1/)
+- [误入反派培养直播后](https://www.gushi1314.com/book/rqitan/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.gushi1314.com/book/rqiqi7/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.gushi1314.com/book/rqiors/)
 - [拯救世界从扮演反派开始](https://www.gushi1314.com/book/rqim81/)
 - [八零恶毒后妈杀疯了](https://www.gushi1314.com/book/rqikao/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi1314.com/book/rqict0/)
-- [贝利珠](https://www.gushi1314.com/book/2p1psd/)
 - [月亮上的大筒木](https://www.gushi1314.com/book/8svcf/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1320/index.md)
 - [最新热点小说](/site1320/newhot.md)
 - [人气小说](/site1320/b111.md)

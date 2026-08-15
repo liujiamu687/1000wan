@@ -1,48 +1,56 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-08-14 03:02:35
+更新时间：2026-08-15 03:03:17
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
-- https://www.fshxjd.com/
+- [笔下文学](https://www.fshxjd.com/)
 
 ## 最新小说
+- [高调装神，猥琐发育](https://www.fshxjd.com/book/74i1qt1/)
+- [穿到法国，但超越者公务员](https://www.fshxjd.com/book/74i1kgc/)
+- [直男咒术师的限制级游戏](https://www.fshxjd.com/book/74i1j0m/)
 - [我与龙傲天寿命共享](https://www.fshxjd.com/book/74i1dtl/)
 - [全球进化，而我保持不变](https://www.fshxjd.com/book/74i1dso/)
+- [失而复得的白月光[快穿]](https://www.fshxjd.com/book/74i1bmh/)
 - [[希腊神话]蛇蛇神生美妙](https://www.fshxjd.com/book/74i1b0m/)
+- [病弱小可怜重生揣崽后](https://www.fshxjd.com/book/74i1aro/)
 - [如何正确哄睡暴君](https://www.fshxjd.com/book/74i19fl/)
 - [[希腊神话]基建拯救世界](https://www.fshxjd.com/book/74i18qa/)
 - [九零首富的替嫁小媳妇](https://www.fshxjd.com/book/74i13mv/)
 - [死遁后冰山O怀了我的崽](https://www.fshxjd.com/book/74i12s6/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.fshxjd.com/book/74i12fe/)
-- [沈助理又在隐藏他的超能力](https://www.fshxjd.com/book/74i0uov/)
-- [[足球]那个德国队新皇](https://www.fshxjd.com/book/74i0sgm/)
+- [我不可能舔一个漂亮捞子](https://www.fshxjd.com/book/74i0vcb/)
 - [在民俗惊悚片被诸神庇护](https://www.fshxjd.com/book/74i0pok/)
-- [七十年代娇美人](https://www.fshxjd.com/book/74i0p38/)
+- [闺蜜就不能是妻子吗](https://www.fshxjd.com/book/74i0onk/)
 - [月亮上的大筒木](https://www.fshxjd.com/book/74i0ml1/)
-- [人外收集录［快穿］](https://www.fshxjd.com/book/74i0kur/)
-- [皇后守则[快穿]](https://www.fshxjd.com/book/74i0kcg/)
+- [被迫臣服冰山顶级大小姐O](https://www.fshxjd.com/book/74i0jp6/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.fshxjd.com/book/74i0j6d/)
-- [仙侠客栈经营RPG！](https://www.fshxjd.com/book/74i0ibt/)
+- [误入反派培养直播后](https://www.fshxjd.com/book/74i0igm/)
+- [在立海大玩网球模拟器](https://www.fshxjd.com/book/74i0ib4/)
 - [我骗家里的钱养你啊](https://www.fshxjd.com/book/74i0hvm/)
+- [死遁后成了忍界白月光？](https://www.fshxjd.com/book/74i0gmv/)
 - [小丧尸也要被迫求生吗](https://www.fshxjd.com/book/74i0f38/)
 - [微臣怜惜公主](https://www.fshxjd.com/book/74i0eqj/)
+- [如何嫁给当朝首辅](https://www.fshxjd.com/book/74i0ed4/)
 - [[秦]公子扶苏](https://www.fshxjd.com/book/74i0dvf/)
-- [伪装纨绔，怎么成了名相](https://www.fshxjd.com/book/74i0ded/)
 - [他要和我谈恋爱](https://www.fshxjd.com/book/74i0cqp/)
 - [黄月光她始乱终弃](https://www.fshxjd.com/book/74i0btb/)
+- [炮灰的我该如何上位？](https://www.fshxjd.com/book/74i0bs8/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.fshxjd.com/book/74i0bgc/)
 - [拯救世界从扮演反派开始](https://www.fshxjd.com/book/74i0a7t/)
+- [当了卧底的我发现遍地熟人](https://www.fshxjd.com/book/74i0957/)
+- [这谁的沙雕二次元心声！](https://www.fshxjd.com/book/74i092l/)
 - [八零恶毒后妈杀疯了](https://www.fshxjd.com/book/74i08g8/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.fshxjd.com/book/74i06c9/)
+- [[封神]圣人生欲](https://www.fshxjd.com/book/74i053h/)
 - [老公是松散生命体](https://www.fshxjd.com/book/74i0229/)
 - [纯爱宇智波基本恋爱法](https://www.fshxjd.com/book/74i01di/)
 - [她是反派的背景板母亲](https://www.fshxjd.com/book/74hu4o5/)
-- [贝利珠](https://www.fshxjd.com/book/74hu4eb/)
 - [你老婆不要你了喔](https://www.fshxjd.com/book/74hu3dk/)
 - [在魔法世界屯田争霸](https://www.fshxjd.com/book/74hu3b7/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1338/index.md)
 - [最新热点小说](/site1338/newhot.md)
 - [人气小说](/site1338/b111.md)

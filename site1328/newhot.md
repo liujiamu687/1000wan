@@ -1,45 +1,50 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-08-14 03:05:27
+更新时间：2026-08-15 03:06:43
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
-- https://www.ksqinlida.com/
+- [新乐文小说](https://www.ksqinlida.com/)
 
 ## 最新小说
+- [[希腊神话]蛇蛇神生美妙](https://www.ksqinlida.com/book/1svdo8l/)
+- [直男咒术师的限制级游戏](https://www.ksqinlida.com/book/1svdo8f/)
+- [纯爱宇智波基本恋爱法](https://www.ksqinlida.com/book/1svdo7f/)
+- [从异世界穿回来后](https://www.ksqinlida.com/book/1svdo6r/)
+- [昭暮](https://www.ksqinlida.com/book/1svddb9/)
 - [你老婆不要你了喔](https://www.ksqinlida.com/book/1svdd9q/)
-- [我的老公是暴君](https://www.ksqinlida.com/book/1svckgj/)
 - [衍生穿越合订本](https://www.ksqinlida.com/book/1svbu71/)
+- [如何嫁给当朝首辅](https://www.ksqinlida.com/book/1svavb7/)
 - [让暴君Alpha怀崽后](https://www.ksqinlida.com/book/1svanpl/)
-- [男朋友买一送一](https://www.ksqinlida.com/book/1svakm4/)
 - [今天还不可以造反吗？？？](https://www.ksqinlida.com/book/1svak8v/)
 - [穿到法国，但超越者公务员](https://www.ksqinlida.com/book/1svac2v/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.ksqinlida.com/book/1svabnt/)
 - [全球进化，而我保持不变](https://www.ksqinlida.com/book/636u4n/)
 - [她是反派的背景板母亲](https://www.ksqinlida.com/book/636qjs/)
-- [沈助理又在隐藏他的超能力](https://www.ksqinlida.com/book/636mq8/)
-- [[足球]那个德国队新皇](https://www.ksqinlida.com/book/636map/)
-- [七十年代娇美人](https://www.ksqinlida.com/book/636i86/)
 - [死遁后冰山O怀了我的崽](https://www.ksqinlida.com/book/636hih/)
-- [人外收集录［快穿］](https://www.ksqinlida.com/book/636evh/)
-- [仙侠客栈经营RPG！](https://www.ksqinlida.com/book/6368rc/)
+- [闺蜜就不能是妻子吗](https://www.ksqinlida.com/book/636cpl/)
+- [在立海大玩网球模拟器](https://www.ksqinlida.com/book/636b5j/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.ksqinlida.com/book/636772/)
-- [伪装纨绔，怎么成了名相](https://www.ksqinlida.com/book/6365pk/)
+- [被迫臣服冰山顶级大小姐O](https://www.ksqinlida.com/book/63659l/)
+- [当了卧底的我发现遍地熟人](https://www.ksqinlida.com/book/635ui1/)
 - [[秦]公子扶苏](https://www.ksqinlida.com/book/635snc/)
 - [我与龙傲天寿命共享](https://www.ksqinlida.com/book/635rjc/)
 - [老公是松散生命体](https://www.ksqinlida.com/book/635qo7/)
+- [这谁的沙雕二次元心声！](https://www.ksqinlida.com/book/635pmh/)
+- [死遁后成了忍界白月光？](https://www.ksqinlida.com/book/635p5v/)
 - [小丧尸也要被迫求生吗](https://www.ksqinlida.com/book/635o34/)
 - [[希腊神话]基建拯救世界](https://www.ksqinlida.com/book/635j7q/)
 - [在魔法世界屯田争霸](https://www.ksqinlida.com/book/635ikv/)
 - [黄月光她始乱终弃](https://www.ksqinlida.com/book/635hd6/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ksqinlida.com/book/635e54/)
+- [误入反派培养直播后](https://www.ksqinlida.com/book/635fsq/)
 - [拯救世界从扮演反派开始](https://www.ksqinlida.com/book/635bf7/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.ksqinlida.com/book/635a8t/)
 - [八零恶毒后妈杀疯了](https://www.ksqinlida.com/book/6356r2/)
 - [在民俗惊悚片被诸神庇护](https://www.ksqinlida.com/book/63539f/)
-- [贝利珠](https://www.ksqinlida.com/book/jgf2s/)
 - [月亮上的大筒木](https://www.ksqinlida.com/book/jgeiv/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1328/index.md)
 - [最新热点小说](/site1328/newhot.md)
 - [人气小说](/site1328/b111.md)

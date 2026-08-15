@@ -1,45 +1,50 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-08-14 03:02:13
+更新时间：2026-08-15 03:02:56
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
-- https://www.duzhe888.com/
+- [读者香书小说](https://www.duzhe888.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.duzhe888.com/book/2koep4m/)
+- [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
+- [纯爱宇智波基本恋爱法](https://www.duzhe888.com/book/2koep3s/)
+- [[希腊神话]蛇蛇神生美妙](https://www.duzhe888.com/book/2koep1a/)
+- [昭暮](https://www.duzhe888.com/book/2koee6e/)
 - [你老婆不要你了喔](https://www.duzhe888.com/book/2koee5v/)
-- [我的老公是暴君](https://www.duzhe888.com/book/2kodlae/)
 - [衍生穿越合订本](https://www.duzhe888.com/book/2kod235/)
+- [如何嫁给当朝首辅](https://www.duzhe888.com/book/2kobv7u/)
 - [让暴君Alpha怀崽后](https://www.duzhe888.com/book/2kobl6h/)
-- [男朋友买一送一](https://www.duzhe888.com/book/2kobkku/)
 - [今天还不可以造反吗？？？](https://www.duzhe888.com/book/2kobivs/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.duzhe888.com/book/2koba0d/)
 - [穿到法国，但超越者公务员](https://www.duzhe888.com/book/2kob99r/)
 - [全球进化，而我保持不变](https://www.duzhe888.com/book/2kob1ns/)
 - [她是反派的背景板母亲](https://www.duzhe888.com/book/8fa564/)
-- [沈助理又在隐藏他的超能力](https://www.duzhe888.com/book/8f9v0q/)
-- [[足球]那个德国队新皇](https://www.duzhe888.com/book/8f9ujh/)
-- [七十年代娇美人](https://www.duzhe888.com/book/8f9s00/)
-- [人外收集录［快穿］](https://www.duzhe888.com/book/8f9pim/)
 - [死遁后冰山O怀了我的崽](https://www.duzhe888.com/book/8f9p8k/)
+- [闺蜜就不能是妻子吗](https://www.duzhe888.com/book/8f9neq/)
+- [在立海大玩网球模拟器](https://www.duzhe888.com/book/8f9k1m/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.duzhe888.com/book/8f9k11/)
-- [仙侠客栈经营RPG！](https://www.duzhe888.com/book/8f9guu/)
-- [伪装纨绔，怎么成了名相](https://www.duzhe888.com/book/8f9cvi/)
+- [被迫臣服冰山顶级大小姐O](https://www.duzhe888.com/book/8f9e66/)
+- [当了卧底的我发现遍地熟人](https://www.duzhe888.com/book/8f9av8/)
 - [我与龙傲天寿命共享](https://www.duzhe888.com/book/8f97ro/)
 - [[秦]公子扶苏](https://www.duzhe888.com/book/8f95hk/)
+- [这谁的沙雕二次元心声！](https://www.duzhe888.com/book/8f94rd/)
+- [死遁后成了忍界白月光？](https://www.duzhe888.com/book/8f93tu/)
 - [小丧尸也要被迫求生吗](https://www.duzhe888.com/book/8f93po/)
 - [老公是松散生命体](https://www.duzhe888.com/book/8f92ac/)
 - [[希腊神话]基建拯救世界](https://www.duzhe888.com/book/8f8vnu/)
 - [在魔法世界屯田争霸](https://www.duzhe888.com/book/8f8sh2/)
 - [黄月光她始乱终弃](https://www.duzhe888.com/book/8f8r00/)
+- [误入反派培养直播后](https://www.duzhe888.com/book/8f8ogo/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.duzhe888.com/book/8f8n1t/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.duzhe888.com/book/8f8lrl/)
 - [拯救世界从扮演反派开始](https://www.duzhe888.com/book/8f8kac/)
 - [八零恶毒后妈杀疯了](https://www.duzhe888.com/book/8f8hit/)
 - [在民俗惊悚片被诸神庇护](https://www.duzhe888.com/book/8f8a5n/)
-- [贝利珠](https://www.duzhe888.com/book/r4043/)
 - [月亮上的大筒木](https://www.duzhe888.com/book/2mq4v/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1321/index.md)
 - [最新热点小说](/site1321/newhot.md)
 - [人气小说](/site1321/b111.md)

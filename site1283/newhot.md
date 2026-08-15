@@ -1,45 +1,49 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-14 03:01:42
+更新时间：2026-08-15 03:02:07
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
-- https://www.cialisgs.com/
+- [书包网](https://www.cialisgs.com/)
 
 ## 最新小说
+- [[希腊神话]蛇蛇神生美妙](https://www.cialisgs.com/book/89ru3bv/)
+- [直男咒术师的限制级游戏](https://www.cialisgs.com/book/89ru3bn/)
+- [纯爱宇智波基本恋爱法](https://www.cialisgs.com/book/89ru3bi/)
 - [你老婆不要你了喔](https://www.cialisgs.com/book/89rtoh6/)
-- [我的老公是暴君](https://www.cialisgs.com/book/89rsvl7/)
+- [昭暮](https://www.cialisgs.com/book/89rtoen/)
 - [衍生穿越合订本](https://www.cialisgs.com/book/89rs33k/)
+- [如何嫁给当朝首辅](https://www.cialisgs.com/book/89rr9uc/)
 - [让暴君Alpha怀崽后](https://www.cialisgs.com/book/89rqvcf/)
-- [男朋友买一送一](https://www.cialisgs.com/book/89rqtil/)
 - [今天还不可以造反吗？？？](https://www.cialisgs.com/book/89rqt6o/)
 - [穿到法国，但超越者公务员](https://www.cialisgs.com/book/89rql88/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.cialisgs.com/book/89rqjp6/)
 - [全球进化，而我保持不变](https://www.cialisgs.com/book/89rqco9/)
 - [她是反派的背景板母亲](https://www.cialisgs.com/book/qirkuq/)
-- [[足球]那个德国队新皇](https://www.cialisgs.com/book/qirhgq/)
-- [沈助理又在隐藏他的超能力](https://www.cialisgs.com/book/qirhaa/)
-- [七十年代娇美人](https://www.cialisgs.com/book/qirdr8/)
-- [人外收集录［快穿］](https://www.cialisgs.com/book/qirc4a/)
 - [死遁后冰山O怀了我的崽](https://www.cialisgs.com/book/qirb3n/)
+- [闺蜜就不能是妻子吗](https://www.cialisgs.com/book/qir9fa/)
+- [在立海大玩网球模拟器](https://www.cialisgs.com/book/qir6b0/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.cialisgs.com/book/qir4lq/)
-- [仙侠客栈经营RPG！](https://www.cialisgs.com/book/qir1op/)
-- [伪装纨绔，怎么成了名相](https://www.cialisgs.com/book/qir08j/)
+- [被迫臣服冰山顶级大小姐O](https://www.cialisgs.com/book/qiqvhu/)
+- [当了卧底的我发现遍地熟人](https://www.cialisgs.com/book/qiqos0/)
 - [我与龙傲天寿命共享](https://www.cialisgs.com/book/qiqnof/)
+- [死遁后成了忍界白月光？](https://www.cialisgs.com/book/qiqmkt/)
 - [[秦]公子扶苏](https://www.cialisgs.com/book/qiqlji/)
 - [小丧尸也要被迫求生吗](https://www.cialisgs.com/book/qiql7t/)
 - [老公是松散生命体](https://www.cialisgs.com/book/qiqkpk/)
+- [这谁的沙雕二次元心声！](https://www.cialisgs.com/book/qiqk7h/)
 - [黄月光她始乱终弃](https://www.cialisgs.com/book/qiqeff/)
 - [在魔法世界屯田争霸](https://www.cialisgs.com/book/qiqe85/)
 - [[希腊神话]基建拯救世界](https://www.cialisgs.com/book/qiqcsq/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.cialisgs.com/book/qiq8en/)
+- [误入反派培养直播后](https://www.cialisgs.com/book/qiq9o8/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.cialisgs.com/book/qiq82m/)
 - [拯救世界从扮演反派开始](https://www.cialisgs.com/book/qiq44v/)
 - [八零恶毒后妈杀疯了](https://www.cialisgs.com/book/qiq2vt/)
 - [在民俗惊悚片被诸神庇护](https://www.cialisgs.com/book/qips5g/)
-- [贝利珠](https://www.cialisgs.com/book/2l2i5g/)
 - [月亮上的大筒木](https://www.cialisgs.com/book/2l2gft/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1283/index.md)
 - [最新热点小说](/site1283/newhot.md)
 - [人气小说](/site1283/b111.md)

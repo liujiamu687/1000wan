@@ -1,45 +1,50 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-08-14 03:04:39
+更新时间：2026-08-15 03:05:47
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
-- https://www.kanshu666.com/
+- [看书小说网](https://www.kanshu666.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.kanshu666.com/book/8jv7i3s/)
+- [[希腊神话]蛇蛇神生美妙](https://www.kanshu666.com/book/8jv7i3r/)
+- [直男咒术师的限制级游戏](https://www.kanshu666.com/book/8jv7i2n/)
+- [纯爱宇智波基本恋爱法](https://www.kanshu666.com/book/8jv7i22/)
+- [昭暮](https://www.kanshu666.com/book/8jv7774/)
 - [你老婆不要你了喔](https://www.kanshu666.com/book/8jv7770/)
 - [衍生穿越合订本](https://www.kanshu666.com/book/8jv5jie/)
-- [我的老公是暴君](https://www.kanshu666.com/book/8jv4if6/)
+- [如何嫁给当朝首辅](https://www.kanshu666.com/book/8jv4pfn/)
 - [让暴君Alpha怀崽后](https://www.kanshu666.com/book/8jv4han/)
 - [今天还不可以造反吗？？？](https://www.kanshu666.com/book/8jv4evs/)
-- [男朋友买一送一](https://www.kanshu666.com/book/8jv4ce7/)
 - [穿到法国，但超越者公务员](https://www.kanshu666.com/book/8jv41tq/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.kanshu666.com/book/8jv40k7/)
 - [全球进化，而我保持不变](https://www.kanshu666.com/book/rj68t2/)
 - [她是反派的背景板母亲](https://www.kanshu666.com/book/rj66ej/)
-- [沈助理又在隐藏他的超能力](https://www.kanshu666.com/book/rj63r4/)
-- [[足球]那个德国队新皇](https://www.kanshu666.com/book/rj5v7n/)
 - [死遁后冰山O怀了我的崽](https://www.kanshu666.com/book/rj5u34/)
-- [七十年代娇美人](https://www.kanshu666.com/book/rj5s8a/)
-- [人外收集录［快穿］](https://www.kanshu666.com/book/rj5qnh/)
+- [闺蜜就不能是妻子吗](https://www.kanshu666.com/book/rj5r5v/)
+- [在立海大玩网球模拟器](https://www.kanshu666.com/book/rj5ota/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.kanshu666.com/book/rj5k5e/)
-- [仙侠客栈经营RPG！](https://www.kanshu666.com/book/rj5j9q/)
-- [伪装纨绔，怎么成了名相](https://www.kanshu666.com/book/rj5iil/)
+- [被迫臣服冰山顶级大小姐O](https://www.kanshu666.com/book/rj5hu6/)
+- [当了卧底的我发现遍地熟人](https://www.kanshu666.com/book/rj5d2s/)
 - [我与龙傲天寿命共享](https://www.kanshu666.com/book/rj59e1/)
 - [[秦]公子扶苏](https://www.kanshu666.com/book/rj59bo/)
 - [老公是松散生命体](https://www.kanshu666.com/book/rj56nd/)
 - [小丧尸也要被迫求生吗](https://www.kanshu666.com/book/rj5561/)
+- [死遁后成了忍界白月光？](https://www.kanshu666.com/book/rj54u4/)
+- [这谁的沙雕二次元心声！](https://www.kanshu666.com/book/rj54ab/)
 - [[希腊神话]基建拯救世界](https://www.kanshu666.com/book/rj5068/)
 - [在魔法世界屯田争霸](https://www.kanshu666.com/book/rj4uud/)
+- [误入反派培养直播后](https://www.kanshu666.com/book/rj4tvr/)
 - [黄月光她始乱终弃](https://www.kanshu666.com/book/rj4too/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kanshu666.com/book/rj4oqb/)
 - [拯救世界从扮演反派开始](https://www.kanshu666.com/book/rj4mpk/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.kanshu666.com/book/rj4mma/)
 - [八零恶毒后妈杀疯了](https://www.kanshu666.com/book/rj4kn2/)
 - [在民俗惊悚片被诸神庇护](https://www.kanshu666.com/book/rj4e47/)
-- [贝利珠](https://www.kanshu666.com/book/2o9ulo/)
 - [月亮上的大筒木](https://www.kanshu666.com/book/8qjm5/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1319/index.md)
 - [最新热点小说](/site1319/newhot.md)
 - [人气小说](/site1319/b111.md)

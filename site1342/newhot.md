@@ -1,48 +1,56 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-08-14 03:00:32
+更新时间：2026-08-15 03:00:48
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
-- https://www.ashedao.com/
+- [阿舍岛小说](https://www.ashedao.com/)
 
 ## 最新小说
+- [高调装神，猥琐发育](https://www.ashedao.com/book/99d1e8j/)
+- [穿到法国，但超越者公务员](https://www.ashedao.com/book/99d1748/)
+- [直男咒术师的限制级游戏](https://www.ashedao.com/book/99d162r/)
 - [全球进化，而我保持不变](https://www.ashedao.com/book/99d12as/)
 - [我与龙傲天寿命共享](https://www.ashedao.com/book/99d11lg/)
+- [失而复得的白月光[快穿]](https://www.ashedao.com/book/99d0u4n/)
+- [病弱小可怜重生揣崽后](https://www.ashedao.com/book/99d0t72/)
 - [如何正确哄睡暴君](https://www.ashedao.com/book/99d0t5l/)
 - [[希腊神话]蛇蛇神生美妙](https://www.ashedao.com/book/99d0t3d/)
 - [[希腊神话]基建拯救世界](https://www.ashedao.com/book/99d0qas/)
 - [九零首富的替嫁小媳妇](https://www.ashedao.com/book/99d0neg/)
 - [死遁后冰山O怀了我的崽](https://www.ashedao.com/book/99d0mjc/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.ashedao.com/book/99d0m2e/)
-- [沈助理又在隐藏他的超能力](https://www.ashedao.com/book/99d0i9j/)
-- [[足球]那个德国队新皇](https://www.ashedao.com/book/99d0g8h/)
-- [七十年代娇美人](https://www.ashedao.com/book/99d0e51/)
+- [我不可能舔一个漂亮捞子](https://www.ashedao.com/book/99d0i2e/)
+- [闺蜜就不能是妻子吗](https://www.ashedao.com/book/99d0dup/)
 - [在民俗惊悚片被诸神庇护](https://www.ashedao.com/book/99d0dcf/)
 - [月亮上的大筒木](https://www.ashedao.com/book/99d0b0a/)
-- [人外收集录［快穿］](https://www.ashedao.com/book/99d0akb/)
-- [皇后守则[快穿]](https://www.ashedao.com/book/99d0813/)
+- [误入反派培养直播后](https://www.ashedao.com/book/99d083l/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.ashedao.com/book/99d065i/)
-- [仙侠客栈经营RPG！](https://www.ashedao.com/book/99d05qc/)
+- [被迫臣服冰山顶级大小姐O](https://www.ashedao.com/book/99d05tr/)
+- [在立海大玩网球模拟器](https://www.ashedao.com/book/99d05ho/)
 - [我骗家里的钱养你啊](https://www.ashedao.com/book/99d05ao/)
+- [死遁后成了忍界白月光？](https://www.ashedao.com/book/99d03mf/)
 - [小丧尸也要被迫求生吗](https://www.ashedao.com/book/99d0343/)
-- [伪装纨绔，怎么成了名相](https://www.ashedao.com/book/99d026b/)
+- [如何嫁给当朝首辅](https://www.ashedao.com/book/99d027v/)
 - [微臣怜惜公主](https://www.ashedao.com/book/99d01r8/)
 - [他要和我谈恋爱](https://www.ashedao.com/book/99d0075/)
 - [[秦]公子扶苏](https://www.ashedao.com/book/99d0048/)
 - [拯救世界从扮演反派开始](https://www.ashedao.com/book/99cvumc/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.ashedao.com/book/99cvtdo/)
 - [黄月光她始乱终弃](https://www.ashedao.com/book/99cvt0j/)
+- [炮灰的我该如何上位？](https://www.ashedao.com/book/99cvspb/)
+- [这谁的沙雕二次元心声！](https://www.ashedao.com/book/99cvroa/)
+- [当了卧底的我发现遍地熟人](https://www.ashedao.com/book/99cvran/)
 - [八零恶毒后妈杀疯了](https://www.ashedao.com/book/99cvqva/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ashedao.com/book/99cvq5q/)
+- [[封神]圣人生欲](https://www.ashedao.com/book/99cvnte/)
 - [老公是松散生命体](https://www.ashedao.com/book/99cvm9o/)
 - [纯爱宇智波基本恋爱法](https://www.ashedao.com/book/99cvl5k/)
-- [贝利珠](https://www.ashedao.com/book/99ctp0j/)
 - [你老婆不要你了喔](https://www.ashedao.com/book/99ctofb/)
 - [在魔法世界屯田争霸](https://www.ashedao.com/book/99cto73/)
 - [她是反派的背景板母亲](https://www.ashedao.com/book/99ctnk7/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1342/index.md)
 - [最新热点小说](/site1342/newhot.md)
 - [人气小说](/site1342/b111.md)

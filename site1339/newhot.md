@@ -1,48 +1,56 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-08-14 03:09:57
+更新时间：2026-08-15 03:11:26
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
-- https://www.wkntmcb.com/
+- [三哥小说网](https://www.wkntmcb.com/)
 
 ## 最新小说
+- [高调装神，猥琐发育](https://www.wkntmcb.com/book/48j0ini/)
+- [穿到法国，但超越者公务员](https://www.wkntmcb.com/book/48j0bp7/)
+- [直男咒术师的限制级游戏](https://www.wkntmcb.com/book/48j0ar4/)
 - [我与龙傲天寿命共享](https://www.wkntmcb.com/book/48j06vj/)
 - [全球进化，而我保持不变](https://www.wkntmcb.com/book/48j04gm/)
 - [[希腊神话]蛇蛇神生美妙](https://www.wkntmcb.com/book/48j03i0/)
 - [如何正确哄睡暴君](https://www.wkntmcb.com/book/48j036u/)
+- [病弱小可怜重生揣崽后](https://www.wkntmcb.com/book/48j035j/)
+- [失而复得的白月光[快穿]](https://www.wkntmcb.com/book/48j01vf/)
 - [[希腊神话]基建拯救世界](https://www.wkntmcb.com/book/48ivvac/)
 - [九零首富的替嫁小媳妇](https://www.wkntmcb.com/book/48ivth2/)
 - [死遁后冰山O怀了我的崽](https://www.wkntmcb.com/book/48ivrkr/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wkntmcb.com/book/48ivqiv/)
-- [沈助理又在隐藏他的超能力](https://www.wkntmcb.com/book/48ivlsk/)
-- [[足球]那个德国队新皇](https://www.wkntmcb.com/book/48ivjrq/)
+- [我不可能舔一个漂亮捞子](https://www.wkntmcb.com/book/48ivnot/)
+- [闺蜜就不能是妻子吗](https://www.wkntmcb.com/book/48ivitf/)
 - [在民俗惊悚片被诸神庇护](https://www.wkntmcb.com/book/48ivipt/)
-- [七十年代娇美人](https://www.wkntmcb.com/book/48ivhsb/)
-- [人外收集录［快穿］](https://www.wkntmcb.com/book/48ivfi1/)
 - [月亮上的大筒木](https://www.wkntmcb.com/book/48ivdir/)
+- [被迫臣服冰山顶级大小姐O](https://www.wkntmcb.com/book/48ivd1f/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.wkntmcb.com/book/48ivc10/)
-- [仙侠客栈经营RPG！](https://www.wkntmcb.com/book/48ivbt3/)
-- [皇后守则[快穿]](https://www.wkntmcb.com/book/48ivb3s/)
+- [在立海大玩网球模拟器](https://www.wkntmcb.com/book/48ivb55/)
+- [误入反派培养直播后](https://www.wkntmcb.com/book/48ivafm/)
 - [小丧尸也要被迫求生吗](https://www.wkntmcb.com/book/48iv9tc/)
+- [死遁后成了忍界白月光？](https://www.wkntmcb.com/book/48iv9o3/)
 - [我骗家里的钱养你啊](https://www.wkntmcb.com/book/48iv9if/)
 - [[秦]公子扶苏](https://www.wkntmcb.com/book/48iv70q/)
+- [如何嫁给当朝首辅](https://www.wkntmcb.com/book/48iv6c7/)
 - [微臣怜惜公主](https://www.wkntmcb.com/book/48iv5tl/)
-- [伪装纨绔，怎么成了名相](https://www.wkntmcb.com/book/48iv51b/)
 - [他要和我谈恋爱](https://www.wkntmcb.com/book/48iv50k/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.wkntmcb.com/book/48iv2u5/)
+- [炮灰的我该如何上位？](https://www.wkntmcb.com/book/48iv2nj/)
 - [拯救世界从扮演反派开始](https://www.wkntmcb.com/book/48iv2fo/)
 - [黄月光她始乱终弃](https://www.wkntmcb.com/book/48iv2c1/)
 - [八零恶毒后妈杀疯了](https://www.wkntmcb.com/book/48iuv85/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wkntmcb.com/book/48iuuls/)
+- [当了卧底的我发现遍地熟人](https://www.wkntmcb.com/book/48iuv21/)
+- [这谁的沙雕二次元心声！](https://www.wkntmcb.com/book/48iuul9/)
+- [[封神]圣人生欲](https://www.wkntmcb.com/book/48ius3c/)
 - [纯爱宇智波基本恋爱法](https://www.wkntmcb.com/book/48iupto/)
 - [老公是松散生命体](https://www.wkntmcb.com/book/48iuoto/)
-- [贝利珠](https://www.wkntmcb.com/book/48istpi/)
 - [她是反派的背景板母亲](https://www.wkntmcb.com/book/48iss4o/)
 - [你老婆不要你了喔](https://www.wkntmcb.com/book/48isra5/)
 - [在魔法世界屯田争霸](https://www.wkntmcb.com/book/48isr90/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1339/index.md)
 - [最新热点小说](/site1339/newhot.md)
 - [人气小说](/site1339/b111.md)

@@ -1,45 +1,50 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-08-14 03:06:11
+更新时间：2026-08-15 03:07:26
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
-- https://www.littlemissribbon.com/
+- [棉花糖小说网](https://www.littlemissribbon.com/)
 
 ## 最新小说
+- [纯爱宇智波基本恋爱法](https://www.littlemissribbon.com/book/5asiiob/)
+- [[希腊神话]蛇蛇神生美妙](https://www.littlemissribbon.com/book/5asiio6/)
+- [直男咒术师的限制级游戏](https://www.littlemissribbon.com/book/5asiilt/)
+- [从异世界穿回来后](https://www.littlemissribbon.com/book/5asiili/)
+- [昭暮](https://www.littlemissribbon.com/book/5asi7qf/)
 - [你老婆不要你了喔](https://www.littlemissribbon.com/book/5asi7po/)
 - [衍生穿越合订本](https://www.littlemissribbon.com/book/5asguej/)
-- [我的老公是暴君](https://www.littlemissribbon.com/book/5asfkra/)
+- [如何嫁给当朝首辅](https://www.littlemissribbon.com/book/5asfq6u/)
 - [让暴君Alpha怀崽后](https://www.littlemissribbon.com/book/5asfi8b/)
 - [今天还不可以造反吗？？？](https://www.littlemissribbon.com/book/5asffg6/)
-- [男朋友买一送一](https://www.littlemissribbon.com/book/5asfebn/)
 - [穿到法国，但超越者公务员](https://www.littlemissribbon.com/book/5asf5of/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.littlemissribbon.com/book/5asf1a1/)
 - [全球进化，而我保持不变](https://www.littlemissribbon.com/book/h2totf/)
 - [她是反派的背景板母亲](https://www.littlemissribbon.com/book/h2tlr0/)
-- [沈助理又在隐藏他的超能力](https://www.littlemissribbon.com/book/h2ti9r/)
-- [[足球]那个德国队新皇](https://www.littlemissribbon.com/book/h2ti51/)
-- [七十年代娇美人](https://www.littlemissribbon.com/book/h2tesn/)
 - [死遁后冰山O怀了我的崽](https://www.littlemissribbon.com/book/h2tdv5/)
-- [人外收集录［快穿］](https://www.littlemissribbon.com/book/h2tbc7/)
-- [仙侠客栈经营RPG！](https://www.littlemissribbon.com/book/h2t52v/)
+- [闺蜜就不能是妻子吗](https://www.littlemissribbon.com/book/h2taqf/)
+- [在立海大玩网球模拟器](https://www.littlemissribbon.com/book/h2t7h5/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.littlemissribbon.com/book/h2t4dq/)
-- [伪装纨绔，怎么成了名相](https://www.littlemissribbon.com/book/h2t1ua/)
+- [被迫臣服冰山顶级大小姐O](https://www.littlemissribbon.com/book/h2t0ef/)
+- [当了卧底的我发现遍地熟人](https://www.littlemissribbon.com/book/h2ssph/)
 - [[秦]公子扶苏](https://www.littlemissribbon.com/book/h2sopn/)
 - [我与龙傲天寿命共享](https://www.littlemissribbon.com/book/h2so4h/)
+- [死遁后成了忍界白月光？](https://www.littlemissribbon.com/book/h2sn43/)
 - [小丧尸也要被迫求生吗](https://www.littlemissribbon.com/book/h2sm72/)
 - [老公是松散生命体](https://www.littlemissribbon.com/book/h2sm0t/)
+- [这谁的沙雕二次元心声！](https://www.littlemissribbon.com/book/h2skud/)
 - [[希腊神话]基建拯救世界](https://www.littlemissribbon.com/book/h2sgvq/)
 - [在魔法世界屯田争霸](https://www.littlemissribbon.com/book/h2sedm/)
 - [黄月光她始乱终弃](https://www.littlemissribbon.com/book/h2sdqo/)
+- [误入反派培养直播后](https://www.littlemissribbon.com/book/h2sbo8/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.littlemissribbon.com/book/h2safo/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.littlemissribbon.com/book/h2s9nn/)
 - [拯救世界从扮演反派开始](https://www.littlemissribbon.com/book/h2s7ak/)
 - [八零恶毒后妈杀疯了](https://www.littlemissribbon.com/book/h2s2il/)
 - [在民俗惊悚片被诸神庇护](https://www.littlemissribbon.com/book/h2rv7m/)
-- [贝利珠](https://www.littlemissribbon.com/book/5f09h/)
 - [月亮上的大筒木](https://www.littlemissribbon.com/book/5evuf/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1300/index.md)
 - [最新热点小说](/site1300/newhot.md)
 - [人气小说](/site1300/b111.md)

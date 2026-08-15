@@ -1,45 +1,49 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-14 03:10:45
+更新时间：2026-08-15 03:12:22
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
-- https://www.xqwz8bk.com/
+- [炫书网](https://www.xqwz8bk.com/)
 
 ## 最新小说
+- [纯爱宇智波基本恋爱法](https://www.xqwz8bk.com/book/1igm2ok/)
+- [[希腊神话]蛇蛇神生美妙](https://www.xqwz8bk.com/book/1igm2oh/)
+- [直男咒术师的限制级游戏](https://www.xqwz8bk.com/book/1igm2nn/)
 - [你老婆不要你了喔](https://www.xqwz8bk.com/book/1iglnsd/)
+- [昭暮](https://www.xqwz8bk.com/book/1iglnr8/)
 - [衍生穿越合订本](https://www.xqwz8bk.com/book/1igkf00/)
-- [我的老公是暴君](https://www.xqwz8bk.com/book/1igj479/)
-- [男朋友买一送一](https://www.xqwz8bk.com/book/1igivog/)
+- [如何嫁给当朝首辅](https://www.xqwz8bk.com/book/1igjao3/)
 - [让暴君Alpha怀崽后](https://www.xqwz8bk.com/book/1igivl4/)
 - [今天还不可以造反吗？？？](https://www.xqwz8bk.com/book/1igiv0m/)
 - [穿到法国，但超越者公务员](https://www.xqwz8bk.com/book/1igij8l/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.xqwz8bk.com/book/1igihso/)
 - [全球进化，而我保持不变](https://www.xqwz8bk.com/book/51nng7/)
 - [她是反派的背景板母亲](https://www.xqwz8bk.com/book/51nk6q/)
-- [沈助理又在隐藏他的超能力](https://www.xqwz8bk.com/book/51nhdc/)
-- [[足球]那个德国队新皇](https://www.xqwz8bk.com/book/51nfb4/)
 - [死遁后冰山O怀了我的崽](https://www.xqwz8bk.com/book/51nc27/)
-- [七十年代娇美人](https://www.xqwz8bk.com/book/51nbbq/)
-- [人外收集录［快穿］](https://www.xqwz8bk.com/book/51n9tl/)
+- [闺蜜就不能是妻子吗](https://www.xqwz8bk.com/book/51n6o6/)
+- [在立海大玩网球模拟器](https://www.xqwz8bk.com/book/51n6gr/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.xqwz8bk.com/book/51n40f/)
-- [仙侠客栈经营RPG！](https://www.xqwz8bk.com/book/51n1vs/)
-- [伪装纨绔，怎么成了名相](https://www.xqwz8bk.com/book/51mtn5/)
+- [被迫臣服冰山顶级大小姐O](https://www.xqwz8bk.com/book/51mutd/)
+- [当了卧底的我发现遍地熟人](https://www.xqwz8bk.com/book/51mr6f/)
 - [我与龙傲天寿命共享](https://www.xqwz8bk.com/book/51mp1f/)
 - [[秦]公子扶苏](https://www.xqwz8bk.com/book/51mnkk/)
+- [这谁的沙雕二次元心声！](https://www.xqwz8bk.com/book/51mm6d/)
 - [小丧尸也要被迫求生吗](https://www.xqwz8bk.com/book/51mlhu/)
+- [死遁后成了忍界白月光？](https://www.xqwz8bk.com/book/51mkuj/)
 - [老公是松散生命体](https://www.xqwz8bk.com/book/51mj0i/)
 - [[希腊神话]基建拯救世界](https://www.xqwz8bk.com/book/51me89/)
 - [在魔法世界屯田争霸](https://www.xqwz8bk.com/book/51me3v/)
 - [黄月光她始乱终弃](https://www.xqwz8bk.com/book/51majo/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.xqwz8bk.com/book/51m8ed/)
+- [误入反派培养直播后](https://www.xqwz8bk.com/book/51ma0q/)
 - [拯救世界从扮演反派开始](https://www.xqwz8bk.com/book/51m6sd/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.xqwz8bk.com/book/51m4lu/)
 - [八零恶毒后妈杀疯了](https://www.xqwz8bk.com/book/51m476/)
 - [在民俗惊悚片被诸神庇护](https://www.xqwz8bk.com/book/51lti9/)
-- [贝利珠](https://www.xqwz8bk.com/book/g5b8p/)
 - [月亮上的大筒木](https://www.xqwz8bk.com/book/1jo6k/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1325/index.md)
 - [最新热点小说](/site1325/newhot.md)
 - [人气小说](/site1325/b111.md)

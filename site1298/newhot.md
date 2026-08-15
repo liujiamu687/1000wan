@@ -1,45 +1,50 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-08-14 03:05:05
+更新时间：2026-08-15 03:06:22
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
-- https://www.kmjike.com/
+- [笔趣屋](https://www.kmjike.com/)
 
 ## 最新小说
+- [[希腊神话]蛇蛇神生美妙](https://www.kmjike.com/book/4mlvldm/)
+- [纯爱宇智波基本恋爱法](https://www.kmjike.com/book/4mlvlde/)
+- [直男咒术师的限制级游戏](https://www.kmjike.com/book/4mlvld8/)
+- [从异世界穿回来后](https://www.kmjike.com/book/4mlvl9p/)
 - [你老婆不要你了喔](https://www.kmjike.com/book/4mlvaeg/)
-- [我的老公是暴君](https://www.kmjike.com/book/4mluhke/)
+- [昭暮](https://www.kmjike.com/book/4mlvacs/)
 - [衍生穿越合订本](https://www.kmjike.com/book/4mltp89/)
+- [如何嫁给当朝首辅](https://www.kmjike.com/book/4mlssju/)
 - [让暴君Alpha怀崽后](https://www.kmjike.com/book/4mlsicc/)
-- [男朋友买一送一](https://www.kmjike.com/book/4mlshpc/)
 - [今天还不可以造反吗？？？](https://www.kmjike.com/book/4mlsftm/)
 - [穿到法国，但超越者公务员](https://www.kmjike.com/book/4mls8jf/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.kmjike.com/book/4mls7r0/)
 - [全球进化，而我保持不变](https://www.kmjike.com/book/f28l2e/)
 - [她是反派的背景板母亲](https://www.kmjike.com/book/f28jf2/)
-- [沈助理又在隐藏他的超能力](https://www.kmjike.com/book/f28hep/)
-- [[足球]那个德国队新皇](https://www.kmjike.com/book/f28fum/)
-- [七十年代娇美人](https://www.kmjike.com/book/f28eg7/)
 - [死遁后冰山O怀了我的崽](https://www.kmjike.com/book/f28a5h/)
-- [人外收集录［快穿］](https://www.kmjike.com/book/f28865/)
+- [闺蜜就不能是妻子吗](https://www.kmjike.com/book/f286kc/)
+- [在立海大玩网球模拟器](https://www.kmjike.com/book/f284e1/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.kmjike.com/book/f282b7/)
-- [仙侠客栈经营RPG！](https://www.kmjike.com/book/f281v9/)
-- [伪装纨绔，怎么成了名相](https://www.kmjike.com/book/f27vbk/)
+- [被迫臣服冰山顶级大小姐O](https://www.kmjike.com/book/f27vaf/)
+- [当了卧底的我发现遍地熟人](https://www.kmjike.com/book/f27ovi/)
 - [我与龙傲天寿命共享](https://www.kmjike.com/book/f27mb1/)
 - [[秦]公子扶苏](https://www.kmjike.com/book/f27lba/)
 - [小丧尸也要被迫求生吗](https://www.kmjike.com/book/f27ijr/)
+- [死遁后成了忍界白月光？](https://www.kmjike.com/book/f27ie9/)
+- [这谁的沙雕二次元心声！](https://www.kmjike.com/book/f27hnd/)
 - [老公是松散生命体](https://www.kmjike.com/book/f27hkv/)
 - [[希腊神话]基建拯救世界](https://www.kmjike.com/book/f27duv/)
 - [在魔法世界屯田争霸](https://www.kmjike.com/book/f27d5r/)
 - [黄月光她始乱终弃](https://www.kmjike.com/book/f279k5/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kmjike.com/book/f275tl/)
+- [误入反派培养直播后](https://www.kmjike.com/book/f278ku/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.kmjike.com/book/f274dd/)
 - [拯救世界从扮演反派开始](https://www.kmjike.com/book/f273b5/)
 - [八零恶毒后妈杀疯了](https://www.kmjike.com/book/f271lg/)
 - [在民俗惊悚片被诸神庇护](https://www.kmjike.com/book/f26r6p/)
-- [贝利珠](https://www.kmjike.com/book/1g726d/)
 - [月亮上的大筒木](https://www.kmjike.com/book/4q9rc/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1298/index.md)
 - [最新热点小说](/site1298/newhot.md)
 - [人气小说](/site1298/b111.md)

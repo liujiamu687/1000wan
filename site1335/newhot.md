@@ -1,48 +1,56 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-08-14 03:04:12
+更新时间：2026-08-15 03:05:11
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
-- https://www.jxbfsz.com/
+- [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
+- [高调装神，猥琐发育](https://www.jxbfsz.com/book/29hvs6r/)
+- [穿到法国，但超越者公务员](https://www.jxbfsz.com/book/29hvlaa/)
+- [直男咒术师的限制级游戏](https://www.jxbfsz.com/book/29hvl7t/)
 - [我与龙傲天寿命共享](https://www.jxbfsz.com/book/29hvgeq/)
 - [全球进化，而我保持不变](https://www.jxbfsz.com/book/29hvfc7/)
 - [如何正确哄睡暴君](https://www.jxbfsz.com/book/29hvemd/)
+- [病弱小可怜重生揣崽后](https://www.jxbfsz.com/book/29hvecf/)
 - [[希腊神话]蛇蛇神生美妙](https://www.jxbfsz.com/book/29hvdep/)
+- [失而复得的白月光[快穿]](https://www.jxbfsz.com/book/29hvc5d/)
 - [[希腊神话]基建拯救世界](https://www.jxbfsz.com/book/29hvamj/)
 - [九零首富的替嫁小媳妇](https://www.jxbfsz.com/book/29hv7co/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.jxbfsz.com/book/29hv5o7/)
 - [死遁后冰山O怀了我的崽](https://www.jxbfsz.com/book/29hv3f5/)
-- [沈助理又在隐藏他的超能力](https://www.jxbfsz.com/book/29hv1ir/)
-- [[足球]那个德国队新皇](https://www.jxbfsz.com/book/29huud4/)
+- [我不可能舔一个漂亮捞子](https://www.jxbfsz.com/book/29hv2hj/)
 - [在民俗惊悚片被诸神庇护](https://www.jxbfsz.com/book/29hussh/)
-- [七十年代娇美人](https://www.jxbfsz.com/book/29hur60/)
+- [闺蜜就不能是妻子吗](https://www.jxbfsz.com/book/29huslu/)
 - [月亮上的大筒木](https://www.jxbfsz.com/book/29hup6k/)
-- [人外收集录［快穿］](https://www.jxbfsz.com/book/29hunml/)
-- [仙侠客栈经营RPG！](https://www.jxbfsz.com/book/29humsi/)
+- [被迫臣服冰山顶级大小姐O](https://www.jxbfsz.com/book/29hunbc/)
+- [在立海大玩网球模拟器](https://www.jxbfsz.com/book/29humq7/)
+- [误入反派培养直播后](https://www.jxbfsz.com/book/29humht/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.jxbfsz.com/book/29hult6/)
-- [皇后守则[快穿]](https://www.jxbfsz.com/book/29huki5/)
+- [死遁后成了忍界白月光？](https://www.jxbfsz.com/book/29hujcf/)
 - [我骗家里的钱养你啊](https://www.jxbfsz.com/book/29huj0c/)
 - [小丧尸也要被迫求生吗](https://www.jxbfsz.com/book/29huirc/)
 - [微臣怜惜公主](https://www.jxbfsz.com/book/29hugg0/)
 - [他要和我谈恋爱](https://www.jxbfsz.com/book/29huftc/)
-- [伪装纨绔，怎么成了名相](https://www.jxbfsz.com/book/29hufs9/)
+- [如何嫁给当朝首辅](https://www.jxbfsz.com/book/29hufo2/)
 - [[秦]公子扶苏](https://www.jxbfsz.com/book/29hufgb/)
 - [拯救世界从扮演反派开始](https://www.jxbfsz.com/book/29hud2g/)
+- [炮灰的我该如何上位？](https://www.jxbfsz.com/book/29hucvb/)
 - [黄月光她始乱终弃](https://www.jxbfsz.com/book/29hubu1/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.jxbfsz.com/book/29hubok/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.jxbfsz.com/book/29huaoe/)
+- [当了卧底的我发现遍地熟人](https://www.jxbfsz.com/book/29huaji/)
 - [八零恶毒后妈杀疯了](https://www.jxbfsz.com/book/29huael/)
+- [这谁的沙雕二次元心声！](https://www.jxbfsz.com/book/29hua9m/)
+- [[封神]圣人生欲](https://www.jxbfsz.com/book/29hu85n/)
 - [老公是松散生命体](https://www.jxbfsz.com/book/29hu5mg/)
 - [纯爱宇智波基本恋爱法](https://www.jxbfsz.com/book/29hu5hu/)
 - [你老婆不要你了喔](https://www.jxbfsz.com/book/29hs7vg/)
-- [贝利珠](https://www.jxbfsz.com/book/29hs7ip/)
 - [她是反派的背景板母亲](https://www.jxbfsz.com/book/29hs6af/)
 - [在魔法世界屯田争霸](https://www.jxbfsz.com/book/29hs63r/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1335/index.md)
 - [最新热点小说](/site1335/newhot.md)
 - [人气小说](/site1335/b111.md)

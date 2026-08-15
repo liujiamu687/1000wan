@@ -1,45 +1,50 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-14 03:00:58
+更新时间：2026-08-15 03:01:24
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
-- https://www.ccccenergy.com/
+- [速阅阁小说网](https://www.ccccenergy.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.ccccenergy.com/book/7car60a/)
+- [[希腊神话]蛇蛇神生美妙](https://www.ccccenergy.com/book/7car5to/)
+- [直男咒术师的限制级游戏](https://www.ccccenergy.com/book/7car5tj/)
+- [纯爱宇智波基本恋爱法](https://www.ccccenergy.com/book/7car5tc/)
+- [昭暮](https://www.ccccenergy.com/book/7caqr3e/)
 - [你老婆不要你了喔](https://www.ccccenergy.com/book/7caqr22/)
-- [我的老公是暴君](https://www.ccccenergy.com/book/7caq27f/)
 - [衍生穿越合订本](https://www.ccccenergy.com/book/7capkli/)
+- [如何嫁给当朝首辅](https://www.ccccenergy.com/book/7caod4t/)
 - [让暴君Alpha怀崽后](https://www.ccccenergy.com/book/7cao41t/)
-- [男朋友买一送一](https://www.ccccenergy.com/book/7cao14c/)
 - [今天还不可以造反吗？？？](https://www.ccccenergy.com/book/7cao0h7/)
+- [漂亮小瞎子捡到直男龙傲天](https://www.ccccenergy.com/book/7canpdr/)
 - [穿到法国，但超越者公务员](https://www.ccccenergy.com/book/7canmqr/)
 - [全球进化，而我保持不变](https://www.ccccenergy.com/book/nkbdvt/)
 - [她是反派的背景板母亲](https://www.ccccenergy.com/book/nkb9n4/)
-- [[足球]那个德国队新皇](https://www.ccccenergy.com/book/nkb7k6/)
-- [沈助理又在隐藏他的超能力](https://www.ccccenergy.com/book/nkb70f/)
-- [七十年代娇美人](https://www.ccccenergy.com/book/nkb654/)
 - [死遁后冰山O怀了我的崽](https://www.ccccenergy.com/book/nkb2hc/)
-- [人外收集录［快穿］](https://www.ccccenergy.com/book/nkb1n6/)
+- [闺蜜就不能是妻子吗](https://www.ccccenergy.com/book/nkb0le/)
+- [在立海大玩网球模拟器](https://www.ccccenergy.com/book/nkargr/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.ccccenergy.com/book/nkar3h/)
-- [仙侠客栈经营RPG！](https://www.ccccenergy.com/book/nkaqoc/)
-- [伪装纨绔，怎么成了名相](https://www.ccccenergy.com/book/nkaktu/)
+- [被迫臣服冰山顶级大小姐O](https://www.ccccenergy.com/book/nkalir/)
+- [当了卧底的我发现遍地熟人](https://www.ccccenergy.com/book/nkaguq/)
 - [小丧尸也要被迫求生吗](https://www.ccccenergy.com/book/nkaej9/)
+- [死遁后成了忍界白月光？](https://www.ccccenergy.com/book/nkaehk/)
 - [我与龙傲天寿命共享](https://www.ccccenergy.com/book/nkadj3/)
 - [[秦]公子扶苏](https://www.ccccenergy.com/book/nkacqo/)
 - [老公是松散生命体](https://www.ccccenergy.com/book/nka9ut/)
+- [这谁的沙雕二次元心声！](https://www.ccccenergy.com/book/nka963/)
 - [在魔法世界屯田争霸](https://www.ccccenergy.com/book/nka5e9/)
 - [[希腊神话]基建拯救世界](https://www.ccccenergy.com/book/nka415/)
+- [误入反派培养直播后](https://www.ccccenergy.com/book/nka2g6/)
 - [黄月光她始乱终弃](https://www.ccccenergy.com/book/nka0q7/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.ccccenergy.com/book/nk9tpp/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ccccenergy.com/book/nk9tio/)
 - [拯救世界从扮演反派开始](https://www.ccccenergy.com/book/nk9s4r/)
 - [八零恶毒后妈杀疯了](https://www.ccccenergy.com/book/nk9oar/)
 - [在民俗惊悚片被诸神庇护](https://www.ccccenergy.com/book/nk9k0r/)
 - [月亮上的大筒木](https://www.ccccenergy.com/book/2bk464/)
-- [贝利珠](https://www.ccccenergy.com/book/2bk3ri/)
 ## 相关内容
+- [README](/README.md)
 - [首页](/site1293/index.md)
 - [最新热点小说](/site1293/newhot.md)
 - [人气小说](/site1293/b111.md)
