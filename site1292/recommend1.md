@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-08-15 03:13:27
+更新时间：2026-08-16 03:18:03
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -16,7 +16,6 @@
 - [高嫁之后](https://www.yumin66.com/book/5q5n3q/)
 - [受气包A被清冷美人欺负了](https://www.yumin66.com/book/5q5n3n/)
 - [在金龙之上](https://www.yumin66.com/book/5q5n3e/)
-- [满级竹马从异世穿回来了](https://www.yumin66.com/book/5q5n3d/)
 - [我不为妾](https://www.yumin66.com/book/5q5n3c/)
 - [致富，文旅项目是穿越](https://www.yumin66.com/book/5q5n36/)
 - [剑宗首席今天倒贴了吗](https://www.yumin66.com/book/5q5n34/)
@@ -72,7 +71,6 @@
 - [[全职高手]见鬼！](https://www.yumin66.com/book/5q5mvc/)
 - [全忍界都在觊觎我的妻子](https://www.yumin66.com/book/5q5mvb/)
 - [[综英美]cos祖国人却成了编外义警](https://www.yumin66.com/book/5q5mva/)
-- [求生游戏：当邪神成为生活玩家后](https://www.yumin66.com/book/5q5mv8/)
 - [[咒回]绝不会喜欢五条君的！](https://www.yumin66.com/book/5q5lof/)
 - [你们蜘蛛巢怎么这样？](https://www.yumin66.com/book/5q5lo1/)
 - [在惊悚片里当灵媒[综恐]](https://www.yumin66.com/book/5q5lnk/)
@@ -106,12 +104,10 @@
 - [被退婚龙傲天强取豪夺了](https://www.yumin66.com/book/5q275p/)
 - [[足球]德布劳内养鼠日记](https://www.yumin66.com/book/5q21bn/)
 - [前女友孩子三岁了](https://www.yumin66.com/book/5q1vu9/)
-- [穿成东北虎后成草原女王了](https://www.yumin66.com/book/im0s6/)
 - [她是反派的背景板母亲](https://www.yumin66.com/book/ilvsv/)
 - [在大明当陪房](https://www.yumin66.com/book/iluej/)
 - [梦鱼记](https://www.yumin66.com/book/ilthd/)
 - [天幕今天也在直播我搞基建](https://www.yumin66.com/book/iltao/)
-- [[武周]太平你看，是玄武门](https://www.yumin66.com/book/ilst7/)
 - [一个被穿越男占有的老实寡妇](https://www.yumin66.com/book/ilrdh/)
 - [新来的室友令人不爽](https://www.yumin66.com/book/ilr6k/)
 - [[诡秘之主]好巧啊你也是愚者信徒？](https://www.yumin66.com/book/ilq9d/)

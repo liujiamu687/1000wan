@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-08-15 03:07:05
+更新时间：2026-08-16 03:12:05
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -10,39 +10,41 @@
 ## 最新小说
 - [纯爱宇智波基本恋爱法](https://www.lianzai007.com/book/6g3n1c3/)
 - [[希腊神话]蛇蛇神生美妙](https://www.lianzai007.com/book/6g3n1bc/)
-- [从异世界穿回来后](https://www.lianzai007.com/book/6g3n1ap/)
-- [直男咒术师的限制级游戏](https://www.lianzai007.com/book/6g3n1ad/)
+- [高嫁之后](https://www.lianzai007.com/book/6g3n1b5/)
 - [你老婆不要你了喔](https://www.lianzai007.com/book/6g3mmbp/)
-- [昭暮](https://www.lianzai007.com/book/6g3mmar/)
-- [衍生穿越合订本](https://www.lianzai007.com/book/6g3l98r/)
+- [我的老公是暴君](https://www.lianzai007.com/book/6g3lth2/)
 - [如何嫁给当朝首辅](https://www.lianzai007.com/book/6g3k8aa/)
-- [让暴君Alpha怀崽后](https://www.lianzai007.com/book/6g3ju85/)
-- [今天还不可以造反吗？？？](https://www.lianzai007.com/book/6g3js85/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.lianzai007.com/book/6g3jkp8/)
+- [不知蝴蝶远](https://www.lianzai007.com/book/6g3jk8f/)
 - [穿到法国，但超越者公务员](https://www.lianzai007.com/book/6g3jjed/)
 - [全球进化，而我保持不变](https://www.lianzai007.com/book/kq1cs0/)
 - [她是反派的背景板母亲](https://www.lianzai007.com/book/kq19um/)
+- [天幕今天也在直播我搞基建](https://www.lianzai007.com/book/kq174u/)
+- [沈助理又在隐藏他的超能力](https://www.lianzai007.com/book/kq16tu/)
 - [死遁后冰山O怀了我的崽](https://www.lianzai007.com/book/kq1241/)
 - [闺蜜就不能是妻子吗](https://www.lianzai007.com/book/kq0vlk/)
-- [在立海大玩网球模拟器](https://www.lianzai007.com/book/kq0t9u/)
+- [可是你也砂锅我](https://www.lianzai007.com/book/kq0url/)
+- [和冰山上司隐婚生崽了](https://www.lianzai007.com/book/kq0qeo/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.lianzai007.com/book/kq0noo/)
 - [被迫臣服冰山顶级大小姐O](https://www.lianzai007.com/book/kq0mes/)
-- [当了卧底的我发现遍地熟人](https://www.lianzai007.com/book/kq0gkf/)
 - [[秦]公子扶苏](https://www.lianzai007.com/book/kq0ekv/)
 - [我与龙傲天寿命共享](https://www.lianzai007.com/book/kq0e2c/)
+- [老婆是恋爱脑女配](https://www.lianzai007.com/book/kq0dah/)
+- [你也没死？](https://www.lianzai007.com/book/kq0c8j/)
 - [这谁的沙雕二次元心声！](https://www.lianzai007.com/book/kq0b8s/)
-- [死遁后成了忍界白月光？](https://www.lianzai007.com/book/kq0aps/)
 - [老公是松散生命体](https://www.lianzai007.com/book/kq09km/)
 - [小丧尸也要被迫求生吗](https://www.lianzai007.com/book/kq09is/)
 - [在魔法世界屯田争霸](https://www.lianzai007.com/book/kq04lo/)
-- [[希腊神话]基建拯救世界](https://www.lianzai007.com/book/kq03mt/)
+- [假日恋悠悠](https://www.lianzai007.com/book/kq03qc/)
 - [黄月光她始乱终弃](https://www.lianzai007.com/book/kq00h1/)
 - [误入反派培养直播后](https://www.lianzai007.com/book/kq007m/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.lianzai007.com/book/kpvtjn/)
+- [多梦你一会儿](https://www.lianzai007.com/book/kpvtdh/)
 - [拯救世界从扮演反派开始](https://www.lianzai007.com/book/kpvsqs/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.lianzai007.com/book/kpvr8v/)
 - [八零恶毒后妈杀疯了](https://www.lianzai007.com/book/kpvnih/)
 - [在民俗惊悚片被诸神庇护](https://www.lianzai007.com/book/kpvjrr/)
-- [月亮上的大筒木](https://www.lianzai007.com/book/22j3up/)
+- [贝利珠](https://www.lianzai007.com/book/6l401/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1315/index.md)

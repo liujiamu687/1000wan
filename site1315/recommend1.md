@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-08-15 03:07:05
+更新时间：2026-08-16 03:12:05
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -68,11 +68,9 @@
 - [给控制狂龙傲天当老婆](https://www.lianzai007.com/book/6g3n17r/)
 - [信息素制导](https://www.lianzai007.com/book/6g3n17p/)
 - [女扮男装科举和皇帝撞脸了！](https://www.lianzai007.com/book/6g3n17n/)
-- [满级竹马从异世穿回来了](https://www.lianzai007.com/book/6g3n17g/)
 - [朕与皇后天生一对](https://www.lianzai007.com/book/6g3n17e/)
 - [虚荣直男被迫万人迷](https://www.lianzai007.com/book/6g3n17d/)
 - [美强惨男配的白月光[快穿]](https://www.lianzai007.com/book/6g3n17c/)
-- [求生游戏：当邪神成为生活玩家后](https://www.lianzai007.com/book/6g3n17a/)
 - [[足球]恋与内斯塔](https://www.lianzai007.com/book/6g3n00g/)
 - [在惊悚片里当灵媒[综恐]](https://www.lianzai007.com/book/6g3n005/)
 - [你们蜘蛛巢怎么这样？](https://www.lianzai007.com/book/6g3mvvr/)
@@ -106,9 +104,7 @@
 - [被退婚龙傲天强取豪夺了](https://www.lianzai007.com/book/6g3jham/)
 - [[足球]德布劳内养鼠日记](https://www.lianzai007.com/book/6g3jc1g/)
 - [前女友孩子三岁了](https://www.lianzai007.com/book/kq1ekh/)
-- [穿成东北虎后成草原女王了](https://www.lianzai007.com/book/kq1bjm/)
 - [她是反派的背景板母亲](https://www.lianzai007.com/book/kq19um/)
-- [[武周]太平你看，是玄武门](https://www.lianzai007.com/book/kq19in/)
 - [在大明当陪房](https://www.lianzai007.com/book/kq19dn/)
 - [梦鱼记](https://www.lianzai007.com/book/kq18gt/)
 - [一个被穿越男占有的老实寡妇](https://www.lianzai007.com/book/kq17tj/)

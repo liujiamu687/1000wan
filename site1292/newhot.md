@@ -1,47 +1,50 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-08-15 03:13:27
+更新时间：2026-08-16 03:18:03
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
 - [酷匠小说网](https://www.yumin66.com/)
 
 ## 最新小说
-- [直男咒术师的限制级游戏](https://www.yumin66.com/book/5q5n44/)
+- [高嫁之后](https://www.yumin66.com/book/5q5n3q/)
 - [[希腊神话]蛇蛇神生美妙](https://www.yumin66.com/book/5q5n2r/)
 - [纯爱宇智波基本恋爱法](https://www.yumin66.com/book/5q5n0g/)
-- [昭暮](https://www.yumin66.com/book/5q5c2s/)
 - [你老婆不要你了喔](https://www.yumin66.com/book/5q5c2p/)
-- [衍生穿越合订本](https://www.yumin66.com/book/5q48fr/)
 - [如何嫁给当朝首辅](https://www.yumin66.com/book/5q2upr/)
-- [让暴君Alpha怀崽后](https://www.yumin66.com/book/5q2lp4/)
-- [今天还不可以造反吗？？？](https://www.yumin66.com/book/5q2itf/)
+- [我的老公是暴君](https://www.yumin66.com/book/5q2q22/)
+- [不知蝴蝶远](https://www.yumin66.com/book/5q28gp/)
 - [穿到法国，但超越者公务员](https://www.yumin66.com/book/5q26h5/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.yumin66.com/book/5q26fm/)
 - [全球进化，而我保持不变](https://www.yumin66.com/book/5q1vh0/)
 - [她是反派的背景板母亲](https://www.yumin66.com/book/ilvsv/)
+- [天幕今天也在直播我搞基建](https://www.yumin66.com/book/iltao/)
+- [沈助理又在隐藏他的超能力](https://www.yumin66.com/book/ilsr7/)
 - [死遁后冰山O怀了我的崽](https://www.yumin66.com/book/ilnkq/)
-- [在立海大玩网球模拟器](https://www.yumin66.com/book/iliak/)
+- [可是你也砂锅我](https://www.yumin66.com/book/ilkaq/)
 - [闺蜜就不能是妻子吗](https://www.yumin66.com/book/ilhsj/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.yumin66.com/book/ilgg6/)
+- [和冰山上司隐婚生崽了](https://www.yumin66.com/book/ilgc4/)
 - [被迫臣服冰山顶级大小姐O](https://www.yumin66.com/book/il8co/)
-- [当了卧底的我发现遍地熟人](https://www.yumin66.com/book/il5n4/)
+- [你也没死？](https://www.yumin66.com/book/il4h3/)
 - [我与龙傲天寿命共享](https://www.yumin66.com/book/il367/)
 - [[秦]公子扶苏](https://www.yumin66.com/book/il31c/)
 - [这谁的沙雕二次元心声！](https://www.yumin66.com/book/il1eo/)
 - [小丧尸也要被迫求生吗](https://www.yumin66.com/book/il17f/)
-- [死遁后成了忍界白月光？](https://www.yumin66.com/book/il0pk/)
+- [老婆是恋爱脑女配](https://www.yumin66.com/book/il0gt/)
 - [老公是松散生命体](https://www.yumin66.com/book/ikvsh/)
-- [[希腊神话]基建拯救世界](https://www.yumin66.com/book/ikqsm/)
+- [假日恋悠悠](https://www.yumin66.com/book/ikqn0/)
 - [在魔法世界屯田争霸](https://www.yumin66.com/book/ikqie/)
 - [黄月光她始乱终弃](https://www.yumin66.com/book/ikmn4/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yumin66.com/book/ikll5/)
 - [误入反派培养直播后](https://www.yumin66.com/book/ikkeb/)
+- [多梦你一会儿](https://www.yumin66.com/book/ikk5b/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.yumin66.com/book/ikhud/)
 - [拯救世界从扮演反派开始](https://www.yumin66.com/book/ikggt/)
 - [八零恶毒后妈杀疯了](https://www.yumin66.com/book/ikdvf/)
 - [在民俗惊悚片被诸神庇护](https://www.yumin66.com/book/ik5hi/)
-- [月亮上的大筒木](https://www.yumin66.com/book/5ukj/)
+- [贝利珠](https://www.yumin66.com/book/5v88/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1292/index.md)
