@@ -1,13 +1,14 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-16 03:07:47
+更新时间：2026-08-17 03:12:00
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.cq082.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.cq082.com/book/1sde4r1/)
 - [假少爷的犟种夫郎](https://www.cq082.com/book/1sddicb/)
 - [在金龙之上](https://www.cq082.com/book/1sddi7k/)
 - [千禧年，拆迁分了十栋楼！](https://www.cq082.com/book/1sddi4i/)
@@ -58,7 +59,6 @@
 - [名柯是子供向](https://www.cq082.com/book/1sdde5v/)
 - [被退婚龙傲天强取豪夺了](https://www.cq082.com/book/1sdde41/)
 - [穿Prada的亚裔超模](https://www.cq082.com/book/1sdde3k/)
-- [年代文漂亮女配高嫁日常](https://www.cq082.com/book/1sdddug/)
 - [病弱，但攻了顶1 [快穿]](https://www.cq082.com/book/1sdddrv/)
 - [总有小动物来找我报案](https://www.cq082.com/book/1sdddn6/)
 - [全忍界都在觊觎我的妻子](https://www.cq082.com/book/1sdddn2/)
@@ -97,8 +97,8 @@
 - [美貌，不值一提［娱乐圈］](https://www.cq082.com/book/1sdcia9/)
 - [靠作死统一忍界！](https://www.cq082.com/book/1sdch9a/)
 - [乱浮生[破镜重圆]](https://www.cq082.com/book/1sdce4b/)
+- [太宗今天又哭了吗](https://www.cq082.com/book/1sdcbnv/)
 - [高嫁之后](https://www.cq082.com/book/1sdcb41/)
-- [望海潮](https://www.cq082.com/book/1sdcatj/)
 - [救世主马甲扮演指南](https://www.cq082.com/book/1sdc8lf/)
 - [那座本丸没有被讨厌](https://www.cq082.com/book/1sdc852/)
 - [北城婚逾](https://www.cq082.com/book/1sdc6tm/)
@@ -110,7 +110,6 @@
 - [尚了眼盲公主后GL](https://www.cq082.com/book/1sdc23h/)
 - [扮演古早人设？我吗？](https://www.cq082.com/book/1sdc0li/)
 - [每天都在阻止哥哥殉职[九零]](https://www.cq082.com/book/1sdbsdp/)
-- [末世我有一棵树（无限）](https://www.cq082.com/book/1sdbsc8/)
 - [纯爱宇智波基本恋爱法](https://www.cq082.com/book/1sdbrua/)
 - [我是多男修罗场文的恶毒女配](https://www.cq082.com/book/1sdbr9v/)
 - [如何饲养一只暴躁心魔](https://www.cq082.com/book/1sdbqjh/)
@@ -134,6 +133,7 @@
 - [予你之名[GB]](https://www.cq082.com/book/1sdbcj6/)
 - [石库门一家人[八零]](https://www.cq082.com/book/1sdbbm2/)
 - [末日安全屋囤货求生](https://www.cq082.com/book/1sdbba5/)
+- [死遁的亡夫们都回来了](https://www.cq082.com/book/1sdb9i5/)
 - [刑部的小衙门](https://www.cq082.com/book/1sdb4qq/)
 - [致富，文旅项目是穿越](https://www.cq082.com/book/1sdb474/)
 - [错把魔尊当感化对象](https://www.cq082.com/book/1sdasc0/)
@@ -142,7 +142,6 @@
 - [我有一座安全城](https://www.cq082.com/book/1sda03i/)
 - [大瑛弟国](https://www.cq082.com/book/1sda03h/)
 - [卧底后被港岛大小姐缠上了](https://www.cq082.com/book/1sda012/)
-- [普通人，但魅魔体质](https://www.cq082.com/book/1sd9vv7/)
 - [日化人生[科研]](https://www.cq082.com/book/1sd9vuu/)
 - [95美国贵族高中模拟](https://www.cq082.com/book/1sd9vhl/)
 - [成为养成系练习生后](https://www.cq082.com/book/1sd9vft/)
@@ -159,7 +158,6 @@
 - [穿成炮灰后我封神了［快穿］](https://www.cq082.com/book/1sd9ugd/)
 - [你们蜘蛛巢怎么这样？](https://www.cq082.com/book/1sd9uf0/)
 - [我剑](https://www.cq082.com/book/1sd9ueg/)
-- [寡妇与糙汉（穿越）](https://www.cq082.com/book/1sd9udn/)
 - [[咒回]绝不会喜欢五条君的！](https://www.cq082.com/book/1sd9ud8/)
 - [在惊悚片里当灵媒[综恐]](https://www.cq082.com/book/1sd9u83/)
 - [据说我是神仙下凡](https://www.cq082.com/book/1sd9u7j/)
@@ -175,10 +173,8 @@
 - [我是唯一地上神国](https://www.cq082.com/book/1sd9tbm/)
 - [清澈女大的六零年代](https://www.cq082.com/book/1sd9t9s/)
 - [[娱乐圈]过分美丽的她](https://www.cq082.com/book/1sd9t8q/)
-- [[足球]米兰逆子成长记](https://www.cq082.com/book/1sd9t5o/)
 - [带着签到系统当医生](https://www.cq082.com/book/1sd9t4o/)
 - [幼儿园来了个林大厨[七零]](https://www.cq082.com/book/1sd9t2k/)
-- [天幕曝我靠装昏君一统天下](https://www.cq082.com/book/1sd9t17/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1337/index.md)
