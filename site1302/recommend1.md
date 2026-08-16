@@ -1,13 +1,14 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-16 03:13:56
+更新时间：2026-08-17 03:18:17
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.revwarny.com/book/3sgl7ie/)
 - [全忍界都在觊觎我的妻子](https://www.revwarny.com/book/3sgl7ic/)
 - [受气包A被清冷美人欺负了](https://www.revwarny.com/book/3sgl7ib/)
 - [欲言又止的研磨君](https://www.revwarny.com/book/3sgl7ia/)
@@ -38,7 +39,6 @@
 - [[综英美]cos祖国人却成了编外义警](https://www.revwarny.com/book/3sgl7g2/)
 - [高嫁之后](https://www.revwarny.com/book/3sgl7g1/)
 - [我让修真界5G全覆盖](https://www.revwarny.com/book/3sgl7fq/)
-- [年代文漂亮女配高嫁日常](https://www.revwarny.com/book/3sgl7fp/)
 - [赘婿之子（科举）](https://www.revwarny.com/book/3sgl7fo/)
 - [阴湿绿茶攻满级重生后](https://www.revwarny.com/book/3sgl7fm/)
 - [虚荣直男被迫万人迷](https://www.revwarny.com/book/3sgl7fl/)
@@ -85,7 +85,6 @@
 - [末日安全屋囤货求生](https://www.revwarny.com/book/3sgjoct/)
 - [穿Prada的亚裔超模](https://www.revwarny.com/book/3sgjmcv/)
 - [我剑](https://www.revwarny.com/book/3sgjl7r/)
-- [寡妇与糙汉（穿越）](https://www.revwarny.com/book/3sgj8qo/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.revwarny.com/book/3sgj6el/)
 - [病弱，但攻了顶1 [快穿]](https://www.revwarny.com/book/3sgj4lm/)
 - [你就是那个Beta？](https://www.revwarny.com/book/3sgipq1/)
@@ -106,6 +105,7 @@
 - [前女友孩子三岁了](https://www.revwarny.com/book/ceh8dk/)
 - [在大明当陪房](https://www.revwarny.com/book/ceh5vv/)
 - [天幕今天也在直播我搞基建](https://www.revwarny.com/book/ceh5rf/)
+- [死遁的亡夫们都回来了](https://www.revwarny.com/book/ceh5lc/)
 - [她是反派的背景板母亲](https://www.revwarny.com/book/ceh5kk/)
 - [风月债](https://www.revwarny.com/book/ceh3as/)
 - [梦鱼记](https://www.revwarny.com/book/ceh282/)
@@ -120,19 +120,17 @@
 - [成为养成系练习生后](https://www.revwarny.com/book/cegr0t/)
 - [谁知权臣是女郎](https://www.revwarny.com/book/cegquo/)
 - [靠作死统一忍界！](https://www.revwarny.com/book/cegpos/)
+- [太宗今天又哭了吗](https://www.revwarny.com/book/cegkdh/)
 - [乱浮生[破镜重圆]](https://www.revwarny.com/book/cegj9h/)
 - [那座本丸没有被讨厌](https://www.revwarny.com/book/ceghus/)
-- [望海潮](https://www.revwarny.com/book/cegfl4/)
 - [救世主马甲扮演指南](https://www.revwarny.com/book/cegefe/)
 - [全星际都想吃我做的菜](https://www.revwarny.com/book/cegdlk/)
 - [他们战斗我种田，他们贫穷我数钱](https://www.revwarny.com/book/cegd6l/)
 - [北城婚逾](https://www.revwarny.com/book/cegc75/)
 - [反派小姨靠直播卖货爆红了](https://www.revwarny.com/book/ceg9uo/)
 - [扮演古早人设？我吗？](https://www.revwarny.com/book/ceg8sd/)
-- [天幕曝我靠装昏君一统天下](https://www.revwarny.com/book/ceg8dv/)
 - [尚了眼盲公主后GL](https://www.revwarny.com/book/ceg78g/)
 - [每天都在阻止哥哥殉职[九零]](https://www.revwarny.com/book/ceg6bi/)
-- [末世我有一棵树（无限）](https://www.revwarny.com/book/ceg4ns/)
 - [如何养成一个反派](https://www.revwarny.com/book/ceg2nt/)
 - [全本丸都对她图谋不轨](https://www.revwarny.com/book/ceg276/)
 - [仁王君今天也要打网球](https://www.revwarny.com/book/ceg1gk/)
@@ -163,7 +161,6 @@
 - [[诡秘之主]邪神误入塔罗会](https://www.revwarny.com/book/17r398/)
 - [全民求生:从小木屋到魔法农场](https://www.revwarny.com/book/17r37s/)
 - [大瑛弟国](https://www.revwarny.com/book/17r330/)
-- [普通人，但魅魔体质](https://www.revwarny.com/book/17r31g/)
 - [警察，但犯罪大师系统[刑侦]](https://www.revwarny.com/book/17r2pb/)
 - [海岛求生：生活玩家种田囤货](https://www.revwarny.com/book/17r2la/)
 - [卧底后被港岛大小姐缠上了](https://www.revwarny.com/book/17r2i0/)
@@ -174,7 +171,6 @@
 - [幼儿园来了个林大厨[七零]](https://www.revwarny.com/book/17r1sl/)
 - [如何扮演源氏重宝](https://www.revwarny.com/book/17r1on/)
 - [科学主义魔法学院](https://www.revwarny.com/book/3vgn8/)
-- [[足球]米兰逆子成长记](https://www.revwarny.com/book/3vgdp/)
 - [五十年代港城日常](https://www.revwarny.com/book/3vgbd/)
 - [高门小婢](https://www.revwarny.com/book/3vgac/)
 - [据说我是神仙下凡](https://www.revwarny.com/book/3vg60/)

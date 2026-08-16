@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-16 03:13:56
+更新时间：2026-08-17 03:18:17
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -10,33 +10,27 @@
 ## 最新小说
 - [纯爱宇智波基本恋爱法](https://www.revwarny.com/book/3sgl7go/)
 - [高嫁之后](https://www.revwarny.com/book/3sgl7g1/)
+- [限制文不是这样的！](https://www.revwarny.com/book/3sgl7f7/)
 - [[希腊神话]蛇蛇神生美妙](https://www.revwarny.com/book/3sgl7da/)
-- [你老婆不要你了喔](https://www.revwarny.com/book/3sgksi2/)
 - [我的老公是暴君](https://www.revwarny.com/book/3sgk3n8/)
 - [如何嫁给当朝首辅](https://www.revwarny.com/book/3sgief1/)
 - [穿到法国，但超越者公务员](https://www.revwarny.com/book/3sghr8n/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.revwarny.com/book/3sghphp/)
-- [不知蝴蝶远](https://www.revwarny.com/book/3sghpgr/)
 - [全球进化，而我保持不变](https://www.revwarny.com/book/ceh6u5/)
-- [天幕今天也在直播我搞基建](https://www.revwarny.com/book/ceh5rf/)
 - [她是反派的背景板母亲](https://www.revwarny.com/book/ceh5kk/)
-- [沈助理又在隐藏他的超能力](https://www.revwarny.com/book/ceh0li/)
-- [死遁后冰山O怀了我的崽](https://www.revwarny.com/book/cegt25/)
-- [可是你也砂锅我](https://www.revwarny.com/book/cegq35/)
-- [闺蜜就不能是妻子吗](https://www.revwarny.com/book/cegoug/)
-- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.revwarny.com/book/cegjpl/)
-- [和冰山上司隐婚生崽了](https://www.revwarny.com/book/cegjhb/)
+- [误标记隔壁阿姨O之后](https://www.revwarny.com/book/ceh09g/)
+- [新来的室友令人不爽](https://www.revwarny.com/book/cegu9g/)
+- [在立海大玩网球模拟器](https://www.revwarny.com/book/ceglqj/)
+- [[足球]最佳前锋](https://www.revwarny.com/book/ceghjg/)
 - [被迫臣服冰山顶级大小姐O](https://www.revwarny.com/book/ceggma/)
-- [你也没死？](https://www.revwarny.com/book/ceg8fr/)
+- [养了一个废太子](https://www.revwarny.com/book/ceggm2/)
+- [咕哒，菜菜，捞捞](https://www.revwarny.com/book/cegbkg/)
 - [[秦]公子扶苏](https://www.revwarny.com/book/ceg7jn/)
 - [我与龙傲天寿命共享](https://www.revwarny.com/book/ceg6pa/)
-- [老婆是恋爱脑女配](https://www.revwarny.com/book/ceg684/)
 - [小丧尸也要被迫求生吗](https://www.revwarny.com/book/ceg4h0/)
 - [老公是松散生命体](https://www.revwarny.com/book/ceg48f/)
-- [这谁的沙雕二次元心声！](https://www.revwarny.com/book/ceg3rf/)
-- [假日恋悠悠](https://www.revwarny.com/book/cefv68/)
+- [死遁后成了忍界白月光？](https://www.revwarny.com/book/ceg3p1/)
 - [在魔法世界屯田争霸](https://www.revwarny.com/book/cefulr/)
-- [黄月光她始乱终弃](https://www.revwarny.com/book/cefs4t/)
 - [误入反派培养直播后](https://www.revwarny.com/book/cefqg3/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.revwarny.com/book/cefq58/)
 - [多梦你一会儿](https://www.revwarny.com/book/cefnl1/)

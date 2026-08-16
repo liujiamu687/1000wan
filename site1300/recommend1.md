@@ -1,13 +1,14 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-08-16 03:12:25
+更新时间：2026-08-17 03:16:44
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
 - [棉花糖小说网](https://www.littlemissribbon.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.littlemissribbon.com/book/5asiiqf/)
 - [假少爷的犟种夫郎](https://www.littlemissribbon.com/book/5asiiqe/)
 - [古代庶女日常生活](https://www.littlemissribbon.com/book/5asiiqd/)
 - [降谷警官的恋爱二周目](https://www.littlemissribbon.com/book/5asiiqc/)
@@ -31,7 +32,6 @@
 - [受气包A被清冷美人欺负了](https://www.littlemissribbon.com/book/5asiipd/)
 - [死对头失忆后非要和我上婚综](https://www.littlemissribbon.com/book/5asiipa/)
 - [婚后老攻彻底不装了！](https://www.littlemissribbon.com/book/5asiip7/)
-- [年代文漂亮女配高嫁日常](https://www.littlemissribbon.com/book/5asiip6/)
 - [[综英美]cos祖国人却成了编外义警](https://www.littlemissribbon.com/book/5asiip5/)
 - [高嫁之后](https://www.littlemissribbon.com/book/5asiip4/)
 - [分手后前女友成了真千金[GB]](https://www.littlemissribbon.com/book/5asiioe/)
@@ -84,7 +84,6 @@
 - [老公对不起](https://www.littlemissribbon.com/book/5ash52d/)
 - [我剑](https://www.littlemissribbon.com/book/5asgu8q/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.littlemissribbon.com/book/5asgq6f/)
-- [寡妇与糙汉（穿越）](https://www.littlemissribbon.com/book/5asgp1c/)
 - [末日安全屋囤货求生](https://www.littlemissribbon.com/book/5asglr0/)
 - [穿Prada的亚裔超模](https://www.littlemissribbon.com/book/5asgkeq/)
 - [病弱，但攻了顶1 [快穿]](https://www.littlemissribbon.com/book/5asgg1a/)
@@ -104,6 +103,7 @@
 - [被退婚龙傲天强取豪夺了](https://www.littlemissribbon.com/book/5asf1jl/)
 - [[足球]德布劳内养鼠日记](https://www.littlemissribbon.com/book/5aset45/)
 - [前女友孩子三岁了](https://www.littlemissribbon.com/book/h2to3u/)
+- [死遁的亡夫们都回来了](https://www.littlemissribbon.com/book/h2tnc8/)
 - [她是反派的背景板母亲](https://www.littlemissribbon.com/book/h2tlr0/)
 - [在大明当陪房](https://www.littlemissribbon.com/book/h2tl2d/)
 - [梦鱼记](https://www.littlemissribbon.com/book/h2tja4/)
@@ -122,7 +122,7 @@
 - [靠作死统一忍界！](https://www.littlemissribbon.com/book/h2t9tg/)
 - [乱浮生[破镜重圆]](https://www.littlemissribbon.com/book/h2t57i/)
 - [那座本丸没有被讨厌](https://www.littlemissribbon.com/book/h2t4a9/)
-- [望海潮](https://www.littlemissribbon.com/book/h2t10t/)
+- [太宗今天又哭了吗](https://www.littlemissribbon.com/book/h2t3ue/)
 - [北城婚逾](https://www.littlemissribbon.com/book/h2suqf/)
 - [救世主马甲扮演指南](https://www.littlemissribbon.com/book/h2stni/)
 - [全星际都想吃我做的菜](https://www.littlemissribbon.com/book/h2stkc/)
@@ -130,10 +130,8 @@
 - [反派小姨靠直播卖货爆红了](https://www.littlemissribbon.com/book/h2ss3b/)
 - [扮演古早人设？我吗？](https://www.littlemissribbon.com/book/h2sp0l/)
 - [尚了眼盲公主后GL](https://www.littlemissribbon.com/book/h2snr5/)
-- [天幕曝我靠装昏君一统天下](https://www.littlemissribbon.com/book/h2snao/)
 - [每天都在阻止哥哥殉职[九零]](https://www.littlemissribbon.com/book/h2smr1/)
 - [商户女与大将军](https://www.littlemissribbon.com/book/h2sl68/)
-- [末世我有一棵树（无限）](https://www.littlemissribbon.com/book/h2skap/)
 - [仁王君今天也要打网球](https://www.littlemissribbon.com/book/h2sjlf/)
 - [论如何在高危世界开公司](https://www.littlemissribbon.com/book/h2sjk0/)
 - [全本丸都对她图谋不轨](https://www.littlemissribbon.com/book/h2sikv/)
@@ -158,7 +156,6 @@
 - [95美国贵族高中模拟](https://www.littlemissribbon.com/book/1mluv6/)
 - [五十年代港城日常](https://www.littlemissribbon.com/book/1mluj7/)
 - [如何扮演源氏重宝](https://www.littlemissribbon.com/book/1mluei/)
-- [普通人，但魅魔体质](https://www.littlemissribbon.com/book/1mlue7/)
 - [穿到反派落魄时](https://www.littlemissribbon.com/book/1mlu57/)
 - [据说我是神仙下凡](https://www.littlemissribbon.com/book/1mltrn/)
 - [大瑛弟国](https://www.littlemissribbon.com/book/1mltqc/)
@@ -178,7 +175,6 @@
 - [带着签到系统当医生](https://www.littlemissribbon.com/book/5f072/)
 - [[娱乐圈]过分美丽的她](https://www.littlemissribbon.com/book/5f01d/)
 - [我是唯一地上神国](https://www.littlemissribbon.com/book/5evvo/)
-- [[足球]米兰逆子成长记](https://www.littlemissribbon.com/book/5evtm/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1300/index.md)
