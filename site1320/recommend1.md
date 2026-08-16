@@ -1,13 +1,14 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-08-16 03:08:58
+更新时间：2026-08-17 03:13:13
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.gushi1314.com/book/8m9ju2b/)
 - [直上青云[八零]](https://www.gushi1314.com/book/8m9ju2a/)
 - [C罗不是绯闻男友[足球]](https://www.gushi1314.com/book/8m9ju29/)
 - [假少爷的犟种夫郎](https://www.gushi1314.com/book/8m9ju28/)
@@ -57,7 +58,6 @@
 - [弱小无助但是装的](https://www.gushi1314.com/book/8m9jtuk/)
 - [魔物堆里的人类幼崽](https://www.gushi1314.com/book/8m9jtuf/)
 - [被嫌弃的宋郁安[GB]](https://www.gushi1314.com/book/8m9jtue/)
-- [年代文漂亮女配高嫁日常](https://www.gushi1314.com/book/8m9jtud/)
 - [婚后老攻彻底不装了！](https://www.gushi1314.com/book/8m9jtua/)
 - [恨我为什么勾引我[GB]](https://www.gushi1314.com/book/8m9jtu4/)
 - [名柯是子供向](https://www.gushi1314.com/book/8m9jtu3/)
@@ -83,7 +83,6 @@
 - [被反派暴君听到心声后[穿书]](https://www.gushi1314.com/book/8m9ipfo/)
 - [老公对不起](https://www.gushi1314.com/book/8m9ifpo/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi1314.com/book/8m9icev/)
-- [寡妇与糙汉（穿越）](https://www.gushi1314.com/book/8m9ibfq/)
 - [我剑](https://www.gushi1314.com/book/8m9i9lf/)
 - [穿Prada的亚裔超模](https://www.gushi1314.com/book/8m9i7f0/)
 - [末日安全屋囤货求生](https://www.gushi1314.com/book/8m9i6sd/)
@@ -107,6 +106,7 @@
 - [前女友孩子三岁了](https://www.gushi1314.com/book/rqk7nq/)
 - [天幕今天也在直播我搞基建](https://www.gushi1314.com/book/rqk68q/)
 - [在大明当陪房](https://www.gushi1314.com/book/rqk5ss/)
+- [死遁的亡夫们都回来了](https://www.gushi1314.com/book/rqk59m/)
 - [[诡秘之主]好巧啊你也是愚者信徒？](https://www.gushi1314.com/book/rqk41c/)
 - [一个被穿越男占有的老实寡妇](https://www.gushi1314.com/book/rqk402/)
 - [风月债](https://www.gushi1314.com/book/rqk3pt/)
@@ -121,9 +121,9 @@
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.gushi1314.com/book/rqjsaj/)
 - [靠作死统一忍界！](https://www.gushi1314.com/book/rqjrj1/)
 - [那座本丸没有被讨厌](https://www.gushi1314.com/book/rqjlad/)
+- [太宗今天又哭了吗](https://www.gushi1314.com/book/rqjjkn/)
 - [乱浮生[破镜重圆]](https://www.gushi1314.com/book/rqjjek/)
 - [全星际都想吃我做的菜](https://www.gushi1314.com/book/rqjj0a/)
-- [望海潮](https://www.gushi1314.com/book/rqjhfd/)
 - [反派小姨靠直播卖货爆红了](https://www.gushi1314.com/book/rqjftv/)
 - [救世主马甲扮演指南](https://www.gushi1314.com/book/rqjftt/)
 - [他们战斗我种田，他们贫穷我数钱](https://www.gushi1314.com/book/rqjes2/)
@@ -131,8 +131,6 @@
 - [尚了眼盲公主后GL](https://www.gushi1314.com/book/rqj9k9/)
 - [扮演古早人设？我吗？](https://www.gushi1314.com/book/rqj9a7/)
 - [每天都在阻止哥哥殉职[九零]](https://www.gushi1314.com/book/rqj7re/)
-- [末世我有一棵树（无限）](https://www.gushi1314.com/book/rqj7qt/)
-- [天幕曝我靠装昏君一统天下](https://www.gushi1314.com/book/rqj79i/)
 - [全本丸都对她图谋不轨](https://www.gushi1314.com/book/rqj5f8/)
 - [商户女与大将军](https://www.gushi1314.com/book/rqj4k6/)
 - [六眼全天监视中](https://www.gushi1314.com/book/rqj447/)
@@ -160,8 +158,6 @@
 - [穿到反派落魄时](https://www.gushi1314.com/book/2p1q8q/)
 - [科学主义魔法学院](https://www.gushi1314.com/book/2p1q8l/)
 - [我有一座安全城](https://www.gushi1314.com/book/2p1q50/)
-- [[足球]米兰逆子成长记](https://www.gushi1314.com/book/2p1q4o/)
-- [普通人，但魅魔体质](https://www.gushi1314.com/book/2p1q12/)
 - [猫猫也要养家糊口](https://www.gushi1314.com/book/2p1q0i/)
 - [海岛求生：生活玩家种田囤货](https://www.gushi1314.com/book/2p1q07/)
 - [全民求生:从小木屋到魔法农场](https://www.gushi1314.com/book/2p1ptk/)

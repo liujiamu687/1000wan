@@ -1,41 +1,35 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-08-16 03:08:58
+更新时间：2026-08-17 03:13:13
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
+- [限制文不是这样的！](https://www.gushi1314.com/book/8m9ju09/)
 - [[希腊神话]蛇蛇神生美妙](https://www.gushi1314.com/book/8m9ju07/)
 - [高嫁之后](https://www.gushi1314.com/book/8m9jtu2/)
 - [纯爱宇智波基本恋爱法](https://www.gushi1314.com/book/8m9jtta/)
-- [你老婆不要你了喔](https://www.gushi1314.com/book/8m9jj1h/)
 - [我的老公是暴君](https://www.gushi1314.com/book/8m9iq80/)
 - [如何嫁给当朝首辅](https://www.gushi1314.com/book/8m9h47n/)
 - [穿到法国，但超越者公务员](https://www.gushi1314.com/book/8m9gfq7/)
-- [不知蝴蝶远](https://www.gushi1314.com/book/8m9gfdq/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.gushi1314.com/book/8m9gf00/)
 - [全球进化，而我保持不变](https://www.gushi1314.com/book/8m9g7m3/)
 - [她是反派的背景板母亲](https://www.gushi1314.com/book/rqk9q7/)
-- [天幕今天也在直播我搞基建](https://www.gushi1314.com/book/rqk68q/)
-- [沈助理又在隐藏他的超能力](https://www.gushi1314.com/book/rqk36j/)
-- [死遁后冰山O怀了我的崽](https://www.gushi1314.com/book/rqjupm/)
-- [可是你也砂锅我](https://www.gushi1314.com/book/rqjthg/)
-- [闺蜜就不能是妻子吗](https://www.gushi1314.com/book/rqjrks/)
-- [和冰山上司隐婚生崽了](https://www.gushi1314.com/book/rqjnqo/)
-- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.gushi1314.com/book/rqjmj0/)
+- [新来的室友令人不爽](https://www.gushi1314.com/book/rqk2e6/)
+- [误标记隔壁阿姨O之后](https://www.gushi1314.com/book/rqjvim/)
+- [在立海大玩网球模拟器](https://www.gushi1314.com/book/rqjolg/)
+- [养了一个废太子](https://www.gushi1314.com/book/rqjh83/)
+- [[足球]最佳前锋](https://www.gushi1314.com/book/rqjh80/)
 - [被迫臣服冰山顶级大小姐O](https://www.gushi1314.com/book/rqjgl5/)
 - [我与龙傲天寿命共享](https://www.gushi1314.com/book/rqjanf/)
-- [这谁的沙雕二次元心声！](https://www.gushi1314.com/book/rqj9pb/)
-- [老婆是恋爱脑女配](https://www.gushi1314.com/book/rqj996/)
-- [你也没死？](https://www.gushi1314.com/book/rqj8nn/)
+- [咕哒，菜菜，捞捞](https://www.gushi1314.com/book/rqja9a/)
+- [死遁后成了忍界白月光？](https://www.gushi1314.com/book/rqj96b/)
 - [小丧尸也要被迫求生吗](https://www.gushi1314.com/book/rqj8c8/)
 - [[秦]公子扶苏](https://www.gushi1314.com/book/rqj7k5/)
 - [老公是松散生命体](https://www.gushi1314.com/book/rqj719/)
-- [假日恋悠悠](https://www.gushi1314.com/book/rqj1e3/)
-- [黄月光她始乱终弃](https://www.gushi1314.com/book/rqivqv/)
 - [在魔法世界屯田争霸](https://www.gushi1314.com/book/rqivm1/)
 - [误入反派培养直播后](https://www.gushi1314.com/book/rqitan/)
 - [多梦你一会儿](https://www.gushi1314.com/book/rqiqt9/)
