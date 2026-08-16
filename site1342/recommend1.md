@@ -1,13 +1,14 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-08-15 03:00:48
+更新时间：2026-08-17 03:10:24
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
 - [阿舍岛小说](https://www.ashedao.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.ashedao.com/book/99d1tn0/)
 - [假少爷的犟种夫郎](https://www.ashedao.com/book/99d1av1/)
 - [女扮男装科举和皇帝撞脸了！](https://www.ashedao.com/book/99d1asm/)
 - [弱小无助但是装的](https://www.ashedao.com/book/99d1amm/)
@@ -47,7 +48,6 @@
 - [大案缉凶[九零刑侦]](https://www.ashedao.com/book/99d18l1/)
 - [你确定是妖工授精？](https://www.ashedao.com/book/99d18km/)
 - [康熙八格格的躺赢日常[清穿]](https://www.ashedao.com/book/99d18jc/)
-- [满级竹马从异世穿回来了](https://www.ashedao.com/book/99d18ii/)
 - [病弱，但攻了顶1 [快穿]](https://www.ashedao.com/book/99d18e8/)
 - [看上表弟的漂亮跟班后](https://www.ashedao.com/book/99d18bu/)
 - [长兄之妻](https://www.ashedao.com/book/99d184d/)
@@ -74,7 +74,6 @@
 - [在四爷府里吃吃喝喝的日常（清穿）](https://www.ashedao.com/book/99d165l/)
 - [直男咒术师的限制级游戏](https://www.ashedao.com/book/99d162r/)
 - [受气包A被清冷美人欺负了](https://www.ashedao.com/book/99d15pm/)
-- [年代文漂亮女配高嫁日常](https://www.ashedao.com/book/99d15o2/)
 - [雪霁珠瑶](https://www.ashedao.com/book/99d15o1/)
 - [[三国]穿成名士，极限求生](https://www.ashedao.com/book/99d15n6/)
 - [动物世界恋爱指北[快穿]](https://www.ashedao.com/book/99d15n5/)
@@ -89,7 +88,6 @@
 - [梦鱼记](https://www.ashedao.com/book/99d0o66/)
 - [死遁后冰山O怀了我的崽](https://www.ashedao.com/book/99d0mjc/)
 - [一个被穿越男占有的老实寡妇](https://www.ashedao.com/book/99d0mdj/)
-- [[武周]太平你看，是玄武门](https://www.ashedao.com/book/99d0kad/)
 - [新来的室友令人不爽](https://www.ashedao.com/book/99d0j4o/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.ashedao.com/book/99d0ieu/)
 - [谁知权臣是女郎](https://www.ashedao.com/book/99d0i3h/)
@@ -100,7 +98,7 @@
 - [靠作死统一忍界！](https://www.ashedao.com/book/99d0aj0/)
 - [乱浮生[破镜重圆]](https://www.ashedao.com/book/99d06ev/)
 - [高嫁之后](https://www.ashedao.com/book/99d04vl/)
-- [望海潮](https://www.ashedao.com/book/99d0327/)
+- [太宗今天又哭了吗](https://www.ashedao.com/book/99d045m/)
 - [北城婚逾](https://www.ashedao.com/book/99d027n/)
 - [那座本丸没有被讨厌](https://www.ashedao.com/book/99d01ut/)
 - [救世主马甲扮演指南](https://www.ashedao.com/book/99d01sg/)
@@ -113,7 +111,6 @@
 - [扮演古早人设？我吗？](https://www.ashedao.com/book/99cvng4/)
 - [每天都在阻止哥哥殉职[九零]](https://www.ashedao.com/book/99cvloc/)
 - [纯爱宇智波基本恋爱法](https://www.ashedao.com/book/99cvl5k/)
-- [末世我有一棵树（无限）](https://www.ashedao.com/book/99cvkb4/)
 - [我是多男修罗场文的恶毒女配](https://www.ashedao.com/book/99cvjqp/)
 - [全本丸都对她图谋不轨](https://www.ashedao.com/book/99cvjhb/)
 - [六眼全天监视中](https://www.ashedao.com/book/99cvj46/)
@@ -135,8 +132,8 @@
 - [予你之名[GB]](https://www.ashedao.com/book/99cv63n/)
 - [雄虫他穿回来了](https://www.ashedao.com/book/99cv5bu/)
 - [石库门一家人[八零]](https://www.ashedao.com/book/99cv4um/)
+- [死遁的亡夫们都回来了](https://www.ashedao.com/book/99cv4kt/)
 - [末日安全屋囤货求生](https://www.ashedao.com/book/99cv3ao/)
-- [求生游戏：当邪神成为生活玩家后](https://www.ashedao.com/book/99cv2le/)
 - [致富，文旅项目是穿越](https://www.ashedao.com/book/99cuv2f/)
 - [刑部的小衙门](https://www.ashedao.com/book/99cutcl/)
 - [错把魔尊当感化对象](https://www.ashedao.com/book/99culb5/)
@@ -150,20 +147,17 @@
 - [海岛求生：生活玩家种田囤货](https://www.ashedao.com/book/99ctokm/)
 - [我剑](https://www.ashedao.com/book/99ctojl/)
 - [你老婆不要你了喔](https://www.ashedao.com/book/99ctofb/)
-- [[足球]米兰逆子成长记](https://www.ashedao.com/book/99ctocq/)
 - [猫猫也要养家糊口](https://www.ashedao.com/book/99ctobt/)
 - [日化人生[科研]](https://www.ashedao.com/book/99cto61/)
 - [御兽师，我打工养你啊](https://www.ashedao.com/book/99cto2h/)
 - [六零之成了卷王的妹妹](https://www.ashedao.com/book/99ctnve/)
 - [巨物致富：回乡开钓场](https://www.ashedao.com/book/99ctntj/)
-- [普通人，但魅魔体质](https://www.ashedao.com/book/99ctnsv/)
 - [我有一座安全城](https://www.ashedao.com/book/99ctnrl/)
 - [带着签到系统当医生](https://www.ashedao.com/book/99ctnqi/)
 - [大瑛弟国](https://www.ashedao.com/book/99ctnmi/)
 - [她是反派的背景板母亲](https://www.ashedao.com/book/99ctnk7/)
 - [穿到反派落魄时](https://www.ashedao.com/book/99ctnjc/)
 - [五十年代港城日常](https://www.ashedao.com/book/99ctnhc/)
-- [穿成东北虎后成草原女王了](https://www.ashedao.com/book/99ctnbv/)
 - [我是唯一地上神国](https://www.ashedao.com/book/99ctnbb/)
 - [天幕今天也在直播我搞基建](https://www.ashedao.com/book/99ctnal/)
 - [清澈女大的六零年代](https://www.ashedao.com/book/99ctn3c/)
@@ -176,9 +170,7 @@
 - [幼儿园来了个林大厨[七零]](https://www.ashedao.com/book/99ctmfn/)
 - [你就是那个Beta？](https://www.ashedao.com/book/99ctmet/)
 - [全民求生:从小木屋到魔法农场](https://www.ashedao.com/book/99ctmda/)
-- [天幕曝我靠装昏君一统天下](https://www.ashedao.com/book/99ctm6s/)
 - [[足球]恋与内斯塔](https://www.ashedao.com/book/99ctm5i/)
-- [寡妇与糙汉（穿越）](https://www.ashedao.com/book/99ctm4u/)
 - [[咒回]绝不会喜欢五条君的！](https://www.ashedao.com/book/99ctm3u/)
 - [高门小婢](https://www.ashedao.com/book/99ctm2g/)
 - [在惊悚片里当灵媒[综恐]](https://www.ashedao.com/book/99ctm01/)

@@ -1,47 +1,44 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-08-15 03:01:02
+更新时间：2026-08-17 03:10:37
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
 - [忆想小说网](https://www.bianlishihao.com/)
 
 ## 最新小说
-- [直男咒术师的限制级游戏](https://www.bianlishihao.com/book/2vr7a9e/)
+- [限制文不是这样的！](https://www.bianlishihao.com/book/2vr7ab7/)
+- [高嫁之后](https://www.bianlishihao.com/book/2vr7a9l/)
 - [[希腊神话]蛇蛇神生美妙](https://www.bianlishihao.com/book/2vr7a9c/)
 - [纯爱宇智波基本恋爱法](https://www.bianlishihao.com/book/2vr7a9a/)
-- [你老婆不要你了喔](https://www.bianlishihao.com/book/2vr6vdu/)
-- [昭暮](https://www.bianlishihao.com/book/2vr6vdd/)
-- [衍生穿越合订本](https://www.bianlishihao.com/book/2vr5gaa/)
 - [如何嫁给当朝首辅](https://www.bianlishihao.com/book/2vr4idk/)
-- [让暴君Alpha怀崽后](https://www.bianlishihao.com/book/2vr47bn/)
-- [今天还不可以造反吗？？？](https://www.bianlishihao.com/book/2vr45sa/)
+- [我的老公是暴君](https://www.bianlishihao.com/book/2vr4at6/)
 - [穿到法国，但超越者公务员](https://www.bianlishihao.com/book/2vr3tcu/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.bianlishihao.com/book/2vr3ph5/)
 - [全球进化，而我保持不变](https://www.bianlishihao.com/book/9ipe38/)
 - [她是反派的背景板母亲](https://www.bianlishihao.com/book/9ipak6/)
-- [死遁后冰山O怀了我的崽](https://www.bianlishihao.com/book/9ip3u9/)
-- [闺蜜就不能是妻子吗](https://www.bianlishihao.com/book/9ip0po/)
+- [误标记隔壁阿姨O之后](https://www.bianlishihao.com/book/9ip6ue/)
+- [新来的室友令人不爽](https://www.bianlishihao.com/book/9ip4sv/)
 - [在立海大玩网球模拟器](https://www.bianlishihao.com/book/9ioro9/)
-- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.bianlishihao.com/book/9ioqdf/)
+- [养了一个废太子](https://www.bianlishihao.com/book/9ionv3/)
+- [[足球]最佳前锋](https://www.bianlishihao.com/book/9iont8/)
 - [被迫臣服冰山顶级大小姐O](https://www.bianlishihao.com/book/9iomtv/)
-- [当了卧底的我发现遍地熟人](https://www.bianlishihao.com/book/9ioida/)
+- [咕哒，菜菜，捞捞](https://www.bianlishihao.com/book/9iohn5/)
 - [死遁后成了忍界白月光？](https://www.bianlishihao.com/book/9ioeqj/)
 - [小丧尸也要被迫求生吗](https://www.bianlishihao.com/book/9ioekp/)
 - [[秦]公子扶苏](https://www.bianlishihao.com/book/9ioe0u/)
 - [我与龙傲天寿命共享](https://www.bianlishihao.com/book/9iodsv/)
 - [老公是松散生命体](https://www.bianlishihao.com/book/9iobe3/)
-- [这谁的沙雕二次元心声！](https://www.bianlishihao.com/book/9iob3p/)
-- [[希腊神话]基建拯救世界](https://www.bianlishihao.com/book/9io597/)
 - [在魔法世界屯田争霸](https://www.bianlishihao.com/book/9io3u1/)
 - [误入反派培养直播后](https://www.bianlishihao.com/book/9io3h5/)
-- [黄月光她始乱终弃](https://www.bianlishihao.com/book/9io2p7/)
+- [多梦你一会儿](https://www.bianlishihao.com/book/9io0i1/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.bianlishihao.com/book/9inv9h/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.bianlishihao.com/book/9inu6l/)
 - [拯救世界从扮演反派开始](https://www.bianlishihao.com/book/9inr48/)
 - [八零恶毒后妈杀疯了](https://www.bianlishihao.com/book/9inns2/)
 - [在民俗惊悚片被诸神庇护](https://www.bianlishihao.com/book/9ink1h/)
-- [月亮上的大筒木](https://www.bianlishihao.com/book/ulfoi/)
+- [贝利珠](https://www.bianlishihao.com/book/ulfdq/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1281/index.md)

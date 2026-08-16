@@ -1,13 +1,14 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-08-15 03:01:02
+更新时间：2026-08-17 03:10:37
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
 - [忆想小说网](https://www.bianlishihao.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.bianlishihao.com/book/2vr7ab9/)
 - [我让修真界5G全覆盖](https://www.bianlishihao.com/book/2vr7ab8/)
 - [限制文不是这样的！](https://www.bianlishihao.com/book/2vr7ab7/)
 - [在金龙之上](https://www.bianlishihao.com/book/2vr7ab6/)
@@ -26,7 +27,6 @@
 - [降谷警官的恋爱二周目](https://www.bianlishihao.com/book/2vr7aao/)
 - [千禧年，拆迁分了十栋楼！](https://www.bianlishihao.com/book/2vr7aan/)
 - [恨我为什么勾引我[GB]](https://www.bianlishihao.com/book/2vr7aam/)
-- [满级竹马从异世穿回来了](https://www.bianlishihao.com/book/2vr7aal/)
 - [十九世纪调料女王](https://www.bianlishihao.com/book/2vr7aak/)
 - [阴湿绿茶攻满级重生后](https://www.bianlishihao.com/book/2vr7aaj/)
 - [爹亲，飞升了就要抛夫弃子吗](https://www.bianlishihao.com/book/2vr7aai/)
@@ -61,7 +61,6 @@
 - [高嫁之后](https://www.bianlishihao.com/book/2vr7a9l/)
 - [欲言又止的研磨君](https://www.bianlishihao.com/book/2vr7a9k/)
 - [美强惨男配的白月光[快穿]](https://www.bianlishihao.com/book/2vr7a9j/)
-- [年代文漂亮女配高嫁日常](https://www.bianlishihao.com/book/2vr7a9i/)
 - [在四爷府里吃吃喝喝的日常（清穿）](https://www.bianlishihao.com/book/2vr7a9h/)
 - [朕与皇后天生一对](https://www.bianlishihao.com/book/2vr7a9g/)
 - [全忍界都在觊觎我的妻子](https://www.bianlishihao.com/book/2vr7a9f/)
@@ -72,7 +71,6 @@
 - [纯爱宇智波基本恋爱法](https://www.bianlishihao.com/book/2vr7a9a/)
 - [小社恐在荒星种草致富](https://www.bianlishihao.com/book/2vr7a99/)
 - [魔物堆里的人类幼崽](https://www.bianlishihao.com/book/2vr7a98/)
-- [求生游戏：当邪神成为生活玩家后](https://www.bianlishihao.com/book/2vr7a96/)
 - [[足球]恋与内斯塔](https://www.bianlishihao.com/book/2vr792a/)
 - [你们蜘蛛巢怎么这样？](https://www.bianlishihao.com/book/2vr7927/)
 - [在惊悚片里当灵媒[综恐]](https://www.bianlishihao.com/book/2vr791r/)
@@ -88,7 +86,6 @@
 - [末日安全屋囤货求生](https://www.bianlishihao.com/book/2vr5l3p/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.bianlishihao.com/book/2vr5cg5/)
 - [穿Prada的亚裔超模](https://www.bianlishihao.com/book/2vr5a3v/)
-- [寡妇与糙汉（穿越）](https://www.bianlishihao.com/book/2vr59qo/)
 - [病弱，但攻了顶1 [快穿]](https://www.bianlishihao.com/book/2vr57gu/)
 - [你就是那个Beta？](https://www.bianlishihao.com/book/2vr4su8/)
 - [御兽师，我打工养你啊](https://www.bianlishihao.com/book/2vr4rg8/)
@@ -106,8 +103,7 @@
 - [被退婚龙傲天强取豪夺了](https://www.bianlishihao.com/book/2vr3okr/)
 - [[足球]德布劳内养鼠日记](https://www.bianlishihao.com/book/2vr3kgg/)
 - [前女友孩子三岁了](https://www.bianlishihao.com/book/9ipfc2/)
-- [穿成东北虎后成草原女王了](https://www.bianlishihao.com/book/9ipcgl/)
-- [[武周]太平你看，是玄武门](https://www.bianlishihao.com/book/9ipao0/)
+- [死遁的亡夫们都回来了](https://www.bianlishihao.com/book/9ipbvl/)
 - [在大明当陪房](https://www.bianlishihao.com/book/9ipall/)
 - [她是反派的背景板母亲](https://www.bianlishihao.com/book/9ipak6/)
 - [梦鱼记](https://www.bianlishihao.com/book/9ip88s/)
@@ -126,7 +122,7 @@
 - [靠作死统一忍界！](https://www.bianlishihao.com/book/9iovr8/)
 - [那座本丸没有被讨厌](https://www.bianlishihao.com/book/9iorhn/)
 - [乱浮生[破镜重圆]](https://www.bianlishihao.com/book/9ioq98/)
-- [望海潮](https://www.bianlishihao.com/book/9ioo93/)
+- [太宗今天又哭了吗](https://www.bianlishihao.com/book/9iooum/)
 - [北城婚逾](https://www.bianlishihao.com/book/9iolh9/)
 - [他们战斗我种田，他们贫穷我数钱](https://www.bianlishihao.com/book/9iokkv/)
 - [救世主马甲扮演指南](https://www.bianlishihao.com/book/9iokb4/)
@@ -134,8 +130,6 @@
 - [反派小姨靠直播卖货爆红了](https://www.bianlishihao.com/book/9ioh78/)
 - [每天都在阻止哥哥殉职[九零]](https://www.bianlishihao.com/book/9ioe8o/)
 - [扮演古早人设？我吗？](https://www.bianlishihao.com/book/9ioe3q/)
-- [天幕曝我靠装昏君一统天下](https://www.bianlishihao.com/book/9iodqg/)
-- [末世我有一棵树（无限）](https://www.bianlishihao.com/book/9iocqe/)
 - [尚了眼盲公主后GL](https://www.bianlishihao.com/book/9iocok/)
 - [全本丸都对她图谋不轨](https://www.bianlishihao.com/book/9ioa43/)
 - [商户女与大将军](https://www.bianlishihao.com/book/9io9n0/)
@@ -161,7 +155,6 @@
 - [错把魔尊当感化对象](https://www.bianlishihao.com/book/9ind74/)
 - [全民求生:从小木屋到魔法农场](https://www.bianlishihao.com/book/ulhcl/)
 - [清澈女大的六零年代](https://www.bianlishihao.com/book/ulgse/)
-- [[足球]米兰逆子成长记](https://www.bianlishihao.com/book/ulgoq/)
 - [如何扮演源氏重宝](https://www.bianlishihao.com/book/ulgoa/)
 - [幼儿园来了个林大厨[七零]](https://www.bianlishihao.com/book/ulgiq/)
 - [海岛求生：生活玩家种田囤货](https://www.bianlishihao.com/book/ulgfv/)
@@ -179,7 +172,6 @@
 - [在古代上班的日子](https://www.bianlishihao.com/book/3254g/)
 - [据说我是神仙下凡](https://www.bianlishihao.com/book/3253s/)
 - [大瑛弟国](https://www.bianlishihao.com/book/3252s/)
-- [普通人，但魅魔体质](https://www.bianlishihao.com/book/32508/)
 - [五十年代港城日常](https://www.bianlishihao.com/book/324t4/)
 - [卧底后被港岛大小姐缠上了](https://www.bianlishihao.com/book/324q6/)
 - [[诡秘之主]邪神误入塔罗会](https://www.bianlishihao.com/book/324oj/)
