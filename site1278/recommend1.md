@@ -1,13 +1,14 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-16 03:18:42
+更新时间：2026-08-17 03:22:52
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
 - [自由屋](https://www.ziyuhai.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.ziyuhai.com/book/84rn50e/)
 - [陷落心弦](https://www.ziyuhai.com/book/84rn50d/)
 - [全忍界都在觊觎我的妻子](https://www.ziyuhai.com/book/84rn50b/)
 - [高嫁之后](https://www.ziyuhai.com/book/84rn50a/)
@@ -28,7 +29,6 @@
 - [爹亲，飞升了就要抛夫弃子吗](https://www.ziyuhai.com/book/84rn4v2/)
 - [弱小无助但是装的](https://www.ziyuhai.com/book/84rn4us/)
 - [废土旅馆基建指南](https://www.ziyuhai.com/book/84rn4ur/)
-- [年代文漂亮女配高嫁日常](https://www.ziyuhai.com/book/84rn4uo/)
 - [二师姐她为何入魔](https://www.ziyuhai.com/book/84rn4un/)
 - [长兄之妻](https://www.ziyuhai.com/book/84rn4uk/)
 - [恨我为什么勾引我[GB]](https://www.ziyuhai.com/book/84rn4ui/)
@@ -83,7 +83,6 @@
 - [被反派暴君听到心声后[穿书]](https://www.ziyuhai.com/book/84rm1a0/)
 - [老公对不起](https://www.ziyuhai.com/book/84rm0co/)
 - [穿Prada的亚裔超模](https://www.ziyuhai.com/book/84rlb6u/)
-- [寡妇与糙汉（穿越）](https://www.ziyuhai.com/book/84rlb2q/)
 - [末日安全屋囤货求生](https://www.ziyuhai.com/book/84rlaob/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ziyuhai.com/book/84rlah0/)
 - [我剑](https://www.ziyuhai.com/book/84rl5vg/)
@@ -106,6 +105,7 @@
 - [前女友孩子三岁了](https://www.ziyuhai.com/book/q2r278/)
 - [她是反派的背景板母亲](https://www.ziyuhai.com/book/q2r074/)
 - [在大明当陪房](https://www.ziyuhai.com/book/q2r030/)
+- [死遁的亡夫们都回来了](https://www.ziyuhai.com/book/q2quoc/)
 - [天幕今天也在直播我搞基建](https://www.ziyuhai.com/book/q2qqlk/)
 - [梦鱼记](https://www.ziyuhai.com/book/q2qqhq/)
 - [青梅她是诱系直女[娱乐圈]](https://www.ziyuhai.com/book/q2qq8e/)
@@ -120,19 +120,17 @@
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.ziyuhai.com/book/q2ql5r/)
 - [谁知权臣是女郎](https://www.ziyuhai.com/book/q2qkmt/)
 - [靠作死统一忍界！](https://www.ziyuhai.com/book/q2qihd/)
+- [太宗今天又哭了吗](https://www.ziyuhai.com/book/q2qe5u/)
 - [乱浮生[破镜重圆]](https://www.ziyuhai.com/book/q2qc8t/)
 - [那座本丸没有被讨厌](https://www.ziyuhai.com/book/q2qbth/)
 - [救世主马甲扮演指南](https://www.ziyuhai.com/book/q2q7p0/)
 - [他们战斗我种田，他们贫穷我数钱](https://www.ziyuhai.com/book/q2q7ou/)
-- [望海潮](https://www.ziyuhai.com/book/q2q6gi/)
 - [全星际都想吃我做的菜](https://www.ziyuhai.com/book/q2q698/)
 - [反派小姨靠直播卖货爆红了](https://www.ziyuhai.com/book/q2q4bj/)
 - [北城婚逾](https://www.ziyuhai.com/book/q2q3pa/)
 - [扮演古早人设？我吗？](https://www.ziyuhai.com/book/q2q04e/)
-- [天幕曝我靠装昏君一统天下](https://www.ziyuhai.com/book/q2q03l/)
 - [尚了眼盲公主后GL](https://www.ziyuhai.com/book/q2pvsh/)
 - [每天都在阻止哥哥殉职[九零]](https://www.ziyuhai.com/book/q2pts6/)
-- [末世我有一棵树（无限）](https://www.ziyuhai.com/book/q2pt7j/)
 - [仁王君今天也要打网球](https://www.ziyuhai.com/book/q2pr6d/)
 - [如何饲养一只暴躁心魔](https://www.ziyuhai.com/book/q2pr1b/)
 - [商户女与大将军](https://www.ziyuhai.com/book/q2pqva/)
@@ -155,7 +153,6 @@
 - [刑部的小衙门](https://www.ziyuhai.com/book/q2p646/)
 - [高三生不可以玩诡异游戏！](https://www.ziyuhai.com/book/q2p06j/)
 - [错把魔尊当感化对象](https://www.ziyuhai.com/book/q2ot8b/)
-- [[足球]米兰逆子成长记](https://www.ziyuhai.com/book/2jf9d8/)
 - [在古代上班的日子](https://www.ziyuhai.com/book/2jf9d1/)
 - [卧底后被港岛大小姐缠上了](https://www.ziyuhai.com/book/2jf9a0/)
 - [据说我是神仙下凡](https://www.ziyuhai.com/book/2jf970/)
@@ -171,7 +168,6 @@
 - [如何扮演源氏重宝](https://www.ziyuhai.com/book/2jf88p/)
 - [科学主义魔法学院](https://www.ziyuhai.com/book/2jf7t0/)
 - [穿到反派落魄时](https://www.ziyuhai.com/book/2jf7o6/)
-- [普通人，但魅魔体质](https://www.ziyuhai.com/book/2jf7ka/)
 - [猫猫也要养家糊口](https://www.ziyuhai.com/book/8b4l1/)
 - [95美国贵族高中模拟](https://www.ziyuhai.com/book/8b45f/)
 - [海岛求生：生活玩家种田囤货](https://www.ziyuhai.com/book/8b448/)

@@ -1,7 +1,7 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-16 03:18:42
+更新时间：2026-08-17 03:22:52
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -9,34 +9,28 @@
 
 ## 最新小说
 - [高嫁之后](https://www.ziyuhai.com/book/84rn50a/)
+- [限制文不是这样的！](https://www.ziyuhai.com/book/84rn4sq/)
 - [纯爱宇智波基本恋爱法](https://www.ziyuhai.com/book/84rn4so/)
 - [[希腊神话]蛇蛇神生美妙](https://www.ziyuhai.com/book/84rn4ro/)
-- [你老婆不要你了喔](https://www.ziyuhai.com/book/84rmpvj/)
 - [如何嫁给当朝首辅](https://www.ziyuhai.com/book/84rkcbo/)
 - [我的老公是暴君](https://www.ziyuhai.com/book/84rk7lg/)
-- [不知蝴蝶远](https://www.ziyuhai.com/book/84rjlf2/)
 - [穿到法国，但超越者公务员](https://www.ziyuhai.com/book/84rjkd5/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.ziyuhai.com/book/84rjkc6/)
 - [全球进化，而我保持不变](https://www.ziyuhai.com/book/q2r2lo/)
 - [她是反派的背景板母亲](https://www.ziyuhai.com/book/q2r074/)
-- [沈助理又在隐藏他的超能力](https://www.ziyuhai.com/book/q2qrpa/)
-- [天幕今天也在直播我搞基建](https://www.ziyuhai.com/book/q2qqlk/)
-- [死遁后冰山O怀了我的崽](https://www.ziyuhai.com/book/q2qm87/)
-- [可是你也砂锅我](https://www.ziyuhai.com/book/q2qj5i/)
-- [闺蜜就不能是妻子吗](https://www.ziyuhai.com/book/q2qf09/)
-- [和冰山上司隐婚生崽了](https://www.ziyuhai.com/book/q2qd3v/)
-- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.ziyuhai.com/book/q2qcco/)
+- [新来的室友令人不爽](https://www.ziyuhai.com/book/q2qp44/)
+- [误标记隔壁阿姨O之后](https://www.ziyuhai.com/book/q2qktg/)
+- [在立海大玩网球模拟器](https://www.ziyuhai.com/book/q2qg1b/)
+- [[足球]最佳前锋](https://www.ziyuhai.com/book/q2q9jf/)
 - [被迫臣服冰山顶级大小姐O](https://www.ziyuhai.com/book/q2q98q/)
+- [养了一个废太子](https://www.ziyuhai.com/book/q2q787/)
+- [咕哒，菜菜，捞捞](https://www.ziyuhai.com/book/q2q5ge/)
 - [[秦]公子扶苏](https://www.ziyuhai.com/book/q2q2gb/)
 - [我与龙傲天寿命共享](https://www.ziyuhai.com/book/q2q1sv/)
-- [你也没死？](https://www.ziyuhai.com/book/q2pvnh/)
-- [老婆是恋爱脑女配](https://www.ziyuhai.com/book/q2pv6t/)
-- [这谁的沙雕二次元心声！](https://www.ziyuhai.com/book/q2ptab/)
+- [死遁后成了忍界白月光？](https://www.ziyuhai.com/book/q2pucr/)
 - [老公是松散生命体](https://www.ziyuhai.com/book/q2pt2v/)
 - [小丧尸也要被迫求生吗](https://www.ziyuhai.com/book/q2pspu/)
-- [假日恋悠悠](https://www.ziyuhai.com/book/q2poav/)
 - [在魔法世界屯田争霸](https://www.ziyuhai.com/book/q2pn1d/)
-- [黄月光她始乱终弃](https://www.ziyuhai.com/book/q2pml5/)
 - [误入反派培养直播后](https://www.ziyuhai.com/book/q2pm7h/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ziyuhai.com/book/q2pj08/)
 - [多梦你一会儿](https://www.ziyuhai.com/book/q2pi25/)
