@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-15 03:08:28
+更新时间：2026-08-18 03:18:17
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
@@ -139,6 +139,38 @@
 - [传奇 第129页](/site1343/category106/129.md)
 - [传奇 第130页](/site1343/category106/130.md)
 - [传奇 第131页](/site1343/category106/131.md)
+- [传奇 第132页](/site1343/category106/132.md)
+- [传奇 第133页](/site1343/category106/133.md)
+- [传奇 第134页](/site1343/category106/134.md)
+- [传奇 第135页](/site1343/category106/135.md)
+- [传奇 第136页](/site1343/category106/136.md)
+- [传奇 第137页](/site1343/category106/137.md)
+- [传奇 第138页](/site1343/category106/138.md)
+- [传奇 第139页](/site1343/category106/139.md)
+- [传奇 第140页](/site1343/category106/140.md)
+- [传奇 第141页](/site1343/category106/141.md)
+- [传奇 第142页](/site1343/category106/142.md)
+- [传奇 第143页](/site1343/category106/143.md)
+- [传奇 第144页](/site1343/category106/144.md)
+- [传奇 第145页](/site1343/category106/145.md)
+- [传奇 第146页](/site1343/category106/146.md)
+- [传奇 第147页](/site1343/category106/147.md)
+- [传奇 第148页](/site1343/category106/148.md)
+- [传奇 第149页](/site1343/category106/149.md)
+- [传奇 第150页](/site1343/category106/150.md)
+- [传奇 第151页](/site1343/category106/151.md)
+- [传奇 第152页](/site1343/category106/152.md)
+- [传奇 第153页](/site1343/category106/153.md)
+- [传奇 第154页](/site1343/category106/154.md)
+- [传奇 第155页](/site1343/category106/155.md)
+- [传奇 第156页](/site1343/category106/156.md)
+- [传奇 第157页](/site1343/category106/157.md)
+- [传奇 第158页](/site1343/category106/158.md)
+- [传奇 第159页](/site1343/category106/159.md)
+- [传奇 第160页](/site1343/category106/160.md)
+- [传奇 第161页](/site1343/category106/161.md)
+- [传奇 第162页](/site1343/category106/162.md)
+- [传奇 第163页](/site1343/category106/163.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1343/index.md)

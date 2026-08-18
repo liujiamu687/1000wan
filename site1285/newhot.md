@@ -1,7 +1,7 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-08-15 03:12:44
+更新时间：2026-08-18 03:22:24
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。
 
@@ -9,39 +9,44 @@
 
 ## 最新小说
 - [[希腊神话]蛇蛇神生美妙](https://www.ycqnjy.com/book/95irej7/)
-- [直男咒术师的限制级游戏](https://www.ycqnjy.com/book/95irej1/)
+- [给控制狂龙傲天当老婆](https://www.ycqnjy.com/book/95ireim/)
+- [高嫁之后](https://www.ycqnjy.com/book/95ireih/)
+- [阴郁路人不想被喜欢](https://www.ycqnjy.com/book/95irehb/)
 - [纯爱宇智波基本恋爱法](https://www.ycqnjy.com/book/95ireg2/)
-- [昭暮](https://www.ycqnjy.com/book/95ir3lk/)
-- [你老婆不要你了喔](https://www.ycqnjy.com/book/95ir3k6/)
-- [衍生穿越合订本](https://www.ycqnjy.com/book/95iprco/)
+- [限制文不是这样的！](https://www.ycqnjy.com/book/95ireft/)
 - [如何嫁给当朝首辅](https://www.ycqnjy.com/book/95ioll4/)
-- [让暴君Alpha怀崽后](https://www.ycqnjy.com/book/95iodqo/)
-- [今天还不可以造反吗？？？](https://www.ycqnjy.com/book/95io9lj/)
+- [我的老公是暴君](https://www.ycqnjy.com/book/95iogks/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.ycqnjy.com/book/95intov/)
 - [穿到法国，但超越者公务员](https://www.ycqnjy.com/book/95intjl/)
 - [全球进化，而我保持不变](https://www.ycqnjy.com/book/tbhrp3/)
 - [她是反派的背景板母亲](https://www.ycqnjy.com/book/tbhqbh/)
+- [若清晨所见之蓝](https://www.ycqnjy.com/book/tbhqal/)
+- [沈助理又在隐藏他的超能力](https://www.ycqnjy.com/book/tbhldp/)
 - [死遁后冰山O怀了我的崽](https://www.ycqnjy.com/book/tbhfvn/)
-- [在立海大玩网球模拟器](https://www.ycqnjy.com/book/tbhaap/)
-- [闺蜜就不能是妻子吗](https://www.ycqnjy.com/book/tbh97i/)
+- [误标记隔壁阿姨O之后](https://www.ycqnjy.com/book/tbhf96/)
+- [可是你也砂锅我](https://www.ycqnjy.com/book/tbhejq/)
+- [[足球]可以来利物浦踢后腰吗](https://www.ycqnjy.com/book/tbhcme/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.ycqnjy.com/book/tbh85q/)
-- [被迫臣服冰山顶级大小姐O](https://www.ycqnjy.com/book/tbh58m/)
-- [当了卧底的我发现遍地熟人](https://www.ycqnjy.com/book/tbguas/)
+- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.ycqnjy.com/book/tbh18o/)
+- [宇智波的遗产](https://www.ycqnjy.com/book/tbh11c/)
+- [阴阳师也可以打网球](https://www.ycqnjy.com/book/tbgui1/)
 - [我与龙傲天寿命共享](https://www.ycqnjy.com/book/tbgt31/)
+- [你也没死？](https://www.ycqnjy.com/book/tbgrki/)
 - [[秦]公子扶苏](https://www.ycqnjy.com/book/tbgr5a/)
+- [老婆是恋爱脑女配](https://www.ycqnjy.com/book/tbgou1/)
 - [这谁的沙雕二次元心声！](https://www.ycqnjy.com/book/tbgopb/)
 - [小丧尸也要被迫求生吗](https://www.ycqnjy.com/book/tbgoa5/)
 - [老公是松散生命体](https://www.ycqnjy.com/book/tbgo8m/)
 - [死遁后成了忍界白月光？](https://www.ycqnjy.com/book/tbgnrp/)
 - [在魔法世界屯田争霸](https://www.ycqnjy.com/book/tbgk82/)
-- [[希腊神话]基建拯救世界](https://www.ycqnjy.com/book/tbgjt6/)
-- [误入反派培养直播后](https://www.ycqnjy.com/book/tbgh3t/)
-- [黄月光她始乱终弃](https://www.ycqnjy.com/book/tbgg1e/)
-- [拯救世界从扮演反派开始](https://www.ycqnjy.com/book/tbgbha/)
+- [东北土豪娇养小甜心后](https://www.ycqnjy.com/book/tbgj7g/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ycqnjy.com/book/tbgd5h/)
+- [[足球]罗蜜第一志愿](https://www.ycqnjy.com/book/tbg9tv/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.ycqnjy.com/book/tbg9rj/)
 - [八零恶毒后妈杀疯了](https://www.ycqnjy.com/book/tbg7ra/)
 - [在民俗惊悚片被诸神庇护](https://www.ycqnjy.com/book/tbg1tu/)
-- [月亮上的大筒木](https://www.ycqnjy.com/book/2tuaq5/)
+- [哥你不能不要我](https://www.ycqnjy.com/book/tbfptf/)
+- [被奇犽告白以后](https://www.ycqnjy.com/book/2tub35/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1285/index.md)

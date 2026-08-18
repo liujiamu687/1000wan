@@ -1,13 +1,22 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-08-17 03:19:33
+更新时间：2026-08-18 03:20:18
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
 - [探秘笔神阁小说](https://www.tanmi818.com/)
 
 ## 最新小说
+- [死遁后冰山O怀了我的崽](https://www.tanmi818.com/book/977a001/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.tanmi818.com/book/9779vl2/)
+- [高嫁之后](https://www.tanmi818.com/book/9779vfp/)
+- [纯爱宇智波基本恋爱法](https://www.tanmi818.com/book/9779vct/)
+- [阴郁路人不想被喜欢](https://www.tanmi818.com/book/9779v88/)
+- [给控制狂龙傲天当老婆](https://www.tanmi818.com/book/9779v6d/)
+- [限制文不是这样的！](https://www.tanmi818.com/book/9779v4d/)
+- [[希腊神话]蛇蛇神生美妙](https://www.tanmi818.com/book/9779u87/)
+- [她是反派的背景板母亲](https://www.tanmi818.com/book/9779u2n/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1345/index.md)

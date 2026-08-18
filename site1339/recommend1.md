@@ -1,7 +1,7 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-08-17 03:20:16
+更新时间：2026-08-18 03:21:06
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
@@ -26,6 +26,7 @@
 - [小社恐在荒星种草致富](https://www.wkntmcb.com/book/48j0c0u/)
 - [带球跑后崽捡垃圾养我](https://www.wkntmcb.com/book/48j0c0f/)
 - [[三国]穿成名士，极限求生](https://www.wkntmcb.com/book/48j0bvm/)
+- [绝色美人模拟器](https://www.wkntmcb.com/book/48j0bua/)
 - [分手后前女友成了真千金[GB]](https://www.wkntmcb.com/book/48j0bsk/)
 - [信息素制导](https://www.wkntmcb.com/book/48j0bse/)
 - [虚荣直男被迫万人迷](https://www.wkntmcb.com/book/48j0bpp/)
@@ -83,7 +84,6 @@
 - [在大明当陪房](https://www.wkntmcb.com/book/48j06nl/)
 - [风月债](https://www.wkntmcb.com/book/48j0537/)
 - [[希腊神话]蛇蛇神生美妙](https://www.wkntmcb.com/book/48j03i0/)
-- [[足球]德布劳内养鼠日记](https://www.wkntmcb.com/book/48j02d6/)
 - [科学主义魔法学院](https://www.wkntmcb.com/book/48j010f/)
 - [梦鱼记](https://www.wkntmcb.com/book/48ivsgd/)
 - [死遁后冰山O怀了我的崽](https://www.wkntmcb.com/book/48ivrkr/)
@@ -95,7 +95,6 @@
 - [青梅她是诱系直女[娱乐圈]](https://www.wkntmcb.com/book/48ivlnn/)
 - [欸？我不是玩家吗？！](https://www.wkntmcb.com/book/48ivj09/)
 - [美貌，不值一提［娱乐圈］](https://www.wkntmcb.com/book/48ivikc/)
-- [靠作死统一忍界！](https://www.wkntmcb.com/book/48ivepb/)
 - [乱浮生[破镜重圆]](https://www.wkntmcb.com/book/48ivb1o/)
 - [太宗今天又哭了吗](https://www.wkntmcb.com/book/48iv9r0/)
 - [高嫁之后](https://www.wkntmcb.com/book/48iv7r6/)
@@ -131,9 +130,8 @@
 - [冷脸萌今天也想谋杀亲夫](https://www.wkntmcb.com/book/48iub8n/)
 - [予你之名[GB]](https://www.wkntmcb.com/book/48iuasi/)
 - [雄虫他穿回来了](https://www.wkntmcb.com/book/48iuao0/)
-- [死遁的亡夫们都回来了](https://www.wkntmcb.com/book/48iu8hp/)
 - [末日安全屋囤货求生](https://www.wkntmcb.com/book/48iu8hd/)
-- [石库门一家人[八零]](https://www.wkntmcb.com/book/48iu8f5/)
+- [沪上弄堂里的小日子[八零]](https://www.wkntmcb.com/book/48iu8f5/)
 - [致富，文旅项目是穿越](https://www.wkntmcb.com/book/48iu3j0/)
 - [刑部的小衙门](https://www.wkntmcb.com/book/48iu2g4/)
 - [错把魔尊当感化对象](https://www.wkntmcb.com/book/48itpua/)
@@ -167,12 +165,9 @@
 - [你老婆不要你了喔](https://www.wkntmcb.com/book/48isra5/)
 - [古代种田养娃日常](https://www.wkntmcb.com/book/48isr85/)
 - [[足球]恋与内斯塔](https://www.wkntmcb.com/book/48isr6l/)
-- [我剑](https://www.wkntmcb.com/book/48isr50/)
 - [五十年代港城日常](https://www.wkntmcb.com/book/48isqtt/)
 - [穿到反派落魄时](https://www.wkntmcb.com/book/48isqpv/)
 - [穿成炮灰后我封神了［快穿］](https://www.wkntmcb.com/book/48isqoi/)
-- [据说我是神仙下凡](https://www.wkntmcb.com/book/48isqnn/)
-- [在古代上班的日子](https://www.wkntmcb.com/book/48isqng/)
 - [[咒回]绝不会喜欢五条君的！](https://www.wkntmcb.com/book/48isqmt/)
 - [如何扮演源氏重宝](https://www.wkntmcb.com/book/48isqm5/)
 ## 相关内容

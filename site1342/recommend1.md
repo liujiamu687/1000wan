@@ -1,7 +1,7 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-08-17 03:10:24
+更新时间：2026-08-18 03:10:50
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
@@ -51,6 +51,7 @@
 - [病弱，但攻了顶1 [快穿]](https://www.ashedao.com/book/99d18e8/)
 - [看上表弟的漂亮跟班后](https://www.ashedao.com/book/99d18bu/)
 - [长兄之妻](https://www.ashedao.com/book/99d184d/)
+- [绝色美人模拟器](https://www.ashedao.com/book/99d1837/)
 - [分手后前女友成了真千金[GB]](https://www.ashedao.com/book/99d17v2/)
 - [前女友孩子三岁了](https://www.ashedao.com/book/99d17tp/)
 - [天幕剧透拆家幼崽是千古一帝](https://www.ashedao.com/book/99d17ql/)
@@ -82,7 +83,6 @@
 - [阴郁路人不想被喜欢](https://www.ashedao.com/book/99d13as/)
 - [风月债](https://www.ashedao.com/book/99d11no/)
 - [在大明当陪房](https://www.ashedao.com/book/99d10du/)
-- [[足球]德布劳内养鼠日记](https://www.ashedao.com/book/99d0uk2/)
 - [[希腊神话]蛇蛇神生美妙](https://www.ashedao.com/book/99d0t3d/)
 - [科学主义魔法学院](https://www.ashedao.com/book/99d0s8f/)
 - [梦鱼记](https://www.ashedao.com/book/99d0o66/)
@@ -95,7 +95,6 @@
 - [青梅她是诱系直女[娱乐圈]](https://www.ashedao.com/book/99d0grt/)
 - [欸？我不是玩家吗？！](https://www.ashedao.com/book/99d0gpu/)
 - [美貌，不值一提［娱乐圈］](https://www.ashedao.com/book/99d0dia/)
-- [靠作死统一忍界！](https://www.ashedao.com/book/99d0aj0/)
 - [乱浮生[破镜重圆]](https://www.ashedao.com/book/99d06ev/)
 - [高嫁之后](https://www.ashedao.com/book/99d04vl/)
 - [太宗今天又哭了吗](https://www.ashedao.com/book/99d045m/)
@@ -131,8 +130,7 @@
 - [魔物堆里的人类幼崽](https://www.ashedao.com/book/99cv6df/)
 - [予你之名[GB]](https://www.ashedao.com/book/99cv63n/)
 - [雄虫他穿回来了](https://www.ashedao.com/book/99cv5bu/)
-- [石库门一家人[八零]](https://www.ashedao.com/book/99cv4um/)
-- [死遁的亡夫们都回来了](https://www.ashedao.com/book/99cv4kt/)
+- [沪上弄堂里的小日子[八零]](https://www.ashedao.com/book/99cv4um/)
 - [末日安全屋囤货求生](https://www.ashedao.com/book/99cv3ao/)
 - [致富，文旅项目是穿越](https://www.ashedao.com/book/99cuv2f/)
 - [刑部的小衙门](https://www.ashedao.com/book/99cutcl/)
@@ -140,12 +138,10 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ashedao.com/book/99ctp5o/)
 - [老公对不起](https://www.ashedao.com/book/99ctp42/)
 - [卧底后被港岛大小姐缠上了](https://www.ashedao.com/book/99ctp02/)
-- [据说我是神仙下凡](https://www.ashedao.com/book/99ctoue/)
 - [警察，但犯罪大师系统[刑侦]](https://www.ashedao.com/book/99ctosp/)
 - [穿成炮灰后我封神了［快穿］](https://www.ashedao.com/book/99ctoqe/)
 - [如何扮演源氏重宝](https://www.ashedao.com/book/99ctop9/)
 - [海岛求生：生活玩家种田囤货](https://www.ashedao.com/book/99ctokm/)
-- [我剑](https://www.ashedao.com/book/99ctojl/)
 - [你老婆不要你了喔](https://www.ashedao.com/book/99ctofb/)
 - [猫猫也要养家糊口](https://www.ashedao.com/book/99ctobt/)
 - [日化人生[科研]](https://www.ashedao.com/book/99cto61/)
@@ -165,7 +161,6 @@
 - [成为养成系练习生后](https://www.ashedao.com/book/99ctn03/)
 - [[娱乐圈]过分美丽的她](https://www.ashedao.com/book/99ctmsm/)
 - [你们蜘蛛巢怎么这样？](https://www.ashedao.com/book/99ctmqi/)
-- [在古代上班的日子](https://www.ashedao.com/book/99ctml0/)
 - [95美国贵族高中模拟](https://www.ashedao.com/book/99ctmjl/)
 - [幼儿园来了个林大厨[七零]](https://www.ashedao.com/book/99ctmfn/)
 - [你就是那个Beta？](https://www.ashedao.com/book/99ctmet/)
