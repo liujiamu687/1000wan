@@ -1,14 +1,16 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-08-16 03:14:37
+更新时间：2026-08-18 03:19:37
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
 - [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.shenyuanhg.com/book/7gict1j/)
 - [动物世界恋爱指北[快穿]](https://www.shenyuanhg.com/book/7gic7qi/)
+- [绝色美人模拟器](https://www.shenyuanhg.com/book/7gic7ld/)
 - [[诡秘之主]邪神误入塔罗会](https://www.shenyuanhg.com/book/7gic7e3/)
 - [C罗不是绯闻男友[足球]](https://www.shenyuanhg.com/book/7gic7a5/)
 - [[全职高手]见鬼！](https://www.shenyuanhg.com/book/7gic79n/)
@@ -70,7 +72,6 @@
 - [古代庶女日常生活](https://www.shenyuanhg.com/book/7gic52b/)
 - [穿Prada的亚裔超模](https://www.shenyuanhg.com/book/7gic51r/)
 - [名柯是子供向](https://www.shenyuanhg.com/book/7gic515/)
-- [年代文漂亮女配高嫁日常](https://www.shenyuanhg.com/book/7gic501/)
 - [第一赋灵师](https://www.shenyuanhg.com/book/7gic4vg/)
 - [康熙八格格的躺赢日常[清穿]](https://www.shenyuanhg.com/book/7gic4v0/)
 - [不知蝴蝶远](https://www.shenyuanhg.com/book/7gic4un/)
@@ -83,7 +84,6 @@
 - [在大明当陪房](https://www.shenyuanhg.com/book/7gibvim/)
 - [风月债](https://www.shenyuanhg.com/book/7gibv5v/)
 - [[希腊神话]蛇蛇神生美妙](https://www.shenyuanhg.com/book/7gibtvg/)
-- [[足球]德布劳内养鼠日记](https://www.shenyuanhg.com/book/7gibscu/)
 - [科学主义魔法学院](https://www.shenyuanhg.com/book/7gibpu0/)
 - [梦鱼记](https://www.shenyuanhg.com/book/7gibmif/)
 - [一个被穿越男占有的老实寡妇](https://www.shenyuanhg.com/book/7gibke4/)
@@ -95,10 +95,9 @@
 - [欸？我不是玩家吗？！](https://www.shenyuanhg.com/book/7gibe85/)
 - [青梅她是诱系直女[娱乐圈]](https://www.shenyuanhg.com/book/7gibdjv/)
 - [美貌，不值一提［娱乐圈］](https://www.shenyuanhg.com/book/7gibd51/)
-- [靠作死统一忍界！](https://www.shenyuanhg.com/book/7gib8e3/)
 - [乱浮生[破镜重圆]](https://www.shenyuanhg.com/book/7gib6tv/)
+- [太宗今天又哭了吗](https://www.shenyuanhg.com/book/7gib3ou/)
 - [高嫁之后](https://www.shenyuanhg.com/book/7gib3is/)
-- [望海潮](https://www.shenyuanhg.com/book/7gib3if/)
 - [那座本丸没有被讨厌](https://www.shenyuanhg.com/book/7gib0ks/)
 - [救世主马甲扮演指南](https://www.shenyuanhg.com/book/7giavmk/)
 - [北城婚逾](https://www.shenyuanhg.com/book/7giav7g/)
@@ -109,7 +108,6 @@
 - [反派小姨靠直播卖货爆红了](https://www.shenyuanhg.com/book/7gias9q/)
 - [尚了眼盲公主后GL](https://www.shenyuanhg.com/book/7giapii/)
 - [扮演古早人设？我吗？](https://www.shenyuanhg.com/book/7giani6/)
-- [末世我有一棵树（无限）](https://www.shenyuanhg.com/book/7gialr1/)
 - [每天都在阻止哥哥殉职[九零]](https://www.shenyuanhg.com/book/7gialo4/)
 - [我是多男修罗场文的恶毒女配](https://www.shenyuanhg.com/book/7gial3i/)
 - [纯爱宇智波基本恋爱法](https://www.shenyuanhg.com/book/7giakjt/)
@@ -133,13 +131,11 @@
 - [玉轸（古代ABO）](https://www.shenyuanhg.com/book/7gia53c/)
 - [予你之名[GB]](https://www.shenyuanhg.com/book/7gia4ff/)
 - [末日安全屋囤货求生](https://www.shenyuanhg.com/book/7gia4cu/)
-- [石库门一家人[八零]](https://www.shenyuanhg.com/book/7gia3uk/)
+- [沪上弄堂里的小日子[八零]](https://www.shenyuanhg.com/book/7gia3uk/)
 - [刑部的小衙门](https://www.shenyuanhg.com/book/7gi9u1e/)
 - [致富，文旅项目是穿越](https://www.shenyuanhg.com/book/7gi9sl6/)
 - [错把魔尊当感化对象](https://www.shenyuanhg.com/book/7gi9kbh/)
 - [日化人生[科研]](https://www.shenyuanhg.com/book/7gi8oc6/)
-- [我剑](https://www.shenyuanhg.com/book/7gi8oc0/)
-- [在古代上班的日子](https://www.shenyuanhg.com/book/7gi8oa4/)
 - [穿成炮灰后我封神了［快穿］](https://www.shenyuanhg.com/book/7gi8o7v/)
 - [五十年代港城日常](https://www.shenyuanhg.com/book/7gi8o7t/)
 - [你就是那个Beta？](https://www.shenyuanhg.com/book/7gi8o5s/)
@@ -148,7 +144,6 @@
 - [穿到反派落魄时](https://www.shenyuanhg.com/book/7gi8ntk/)
 - [幼儿园来了个林大厨[七零]](https://www.shenyuanhg.com/book/7gi8nsh/)
 - [我有一座安全城](https://www.shenyuanhg.com/book/7gi8nsa/)
-- [普通人，但魅魔体质](https://www.shenyuanhg.com/book/7gi8nlr/)
 - [她是反派的背景板母亲](https://www.shenyuanhg.com/book/7gi8nja/)
 - [巨物致富：回乡开钓场](https://www.shenyuanhg.com/book/7gi8n56/)
 - [全民求生:从小木屋到魔法农场](https://www.shenyuanhg.com/book/7gi8n4d/)
@@ -156,7 +151,6 @@
 - [古代种田养娃日常](https://www.shenyuanhg.com/book/7gi8n0h/)
 - [清澈女大的六零年代](https://www.shenyuanhg.com/book/7gi8mv3/)
 - [[咒回]绝不会喜欢五条君的！](https://www.shenyuanhg.com/book/7gi8mpv/)
-- [据说我是神仙下凡](https://www.shenyuanhg.com/book/7gi8moi/)
 - [天幕今天也在直播我搞基建](https://www.shenyuanhg.com/book/7gi8mn0/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shenyuanhg.com/book/7gi8mm1/)
 - [海岛求生：生活玩家种田囤货](https://www.shenyuanhg.com/book/7gi8mlr/)
@@ -165,9 +159,7 @@
 - [带着签到系统当医生](https://www.shenyuanhg.com/book/7gi8mfa/)
 - [猫猫也要养家糊口](https://www.shenyuanhg.com/book/7gi8mdp/)
 - [你们蜘蛛巢怎么这样？](https://www.shenyuanhg.com/book/7gi8mct/)
-- [天幕曝我靠装昏君一统天下](https://www.shenyuanhg.com/book/7gi8mcm/)
 - [高门小婢](https://www.shenyuanhg.com/book/7gi8mbh/)
-- [[足球]米兰逆子成长记](https://www.shenyuanhg.com/book/7gi8maq/)
 - [[足球]恋与内斯塔](https://www.shenyuanhg.com/book/7gi8mae/)
 - [我是唯一地上神国](https://www.shenyuanhg.com/book/7gi8mac/)
 - [你老婆不要你了喔](https://www.shenyuanhg.com/book/7gi8m8s/)
@@ -178,7 +170,6 @@
 - [大瑛弟国](https://www.shenyuanhg.com/book/7gi8lpk/)
 - [御兽师，我打工养你啊](https://www.shenyuanhg.com/book/7gi8lp4/)
 - [在惊悚片里当灵媒[综恐]](https://www.shenyuanhg.com/book/7gi8lgf/)
-- [寡妇与糙汉（穿越）](https://www.shenyuanhg.com/book/7gi8lfm/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1341/index.md)

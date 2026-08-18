@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-08-17 03:22:11
+更新时间：2026-08-18 03:23:15
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -79,11 +79,10 @@
 - [你老婆不要你了喔](https://www.yumin66.com/book/5q5c2p/)
 - [绝世美人也能当反派吗[快穿]](https://www.yumin66.com/book/5q51b1/)
 - [古代种田养娃日常](https://www.yumin66.com/book/5q517g/)
-- [石库门一家人[八零]](https://www.yumin66.com/book/5q514s/)
+- [沪上弄堂里的小日子[八零]](https://www.yumin66.com/book/5q514s/)
 - [被反派暴君听到心声后[穿书]](https://www.yumin66.com/book/5q4jpk/)
 - [老公对不起](https://www.yumin66.com/book/5q4ipa/)
 - [末日安全屋囤货求生](https://www.yumin66.com/book/5q44vd/)
-- [我剑](https://www.yumin66.com/book/5q40ee/)
 - [穿Prada的亚裔超模](https://www.yumin66.com/book/5q3sm4/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yumin66.com/book/5q3msv/)
 - [病弱，但攻了顶1 [快穿]](https://www.yumin66.com/book/5q3l8i/)
@@ -99,11 +98,10 @@
 - [[三国]穿成名士，极限求生](https://www.yumin66.com/book/5q2c60/)
 - [和心机大小姐成为室友后](https://www.yumin66.com/book/5q2ata/)
 - [总有小动物来找我报案](https://www.yumin66.com/book/5q29s2/)
+- [绝色美人模拟器](https://www.yumin66.com/book/5q29ji/)
 - [不知蝴蝶远](https://www.yumin66.com/book/5q28gp/)
 - [被退婚龙傲天强取豪夺了](https://www.yumin66.com/book/5q275p/)
-- [[足球]德布劳内养鼠日记](https://www.yumin66.com/book/5q21bn/)
 - [前女友孩子三岁了](https://www.yumin66.com/book/5q1vu9/)
-- [死遁的亡夫们都回来了](https://www.yumin66.com/book/im1gj/)
 - [她是反派的背景板母亲](https://www.yumin66.com/book/ilvsv/)
 - [在大明当陪房](https://www.yumin66.com/book/iluej/)
 - [梦鱼记](https://www.yumin66.com/book/ilthd/)
@@ -119,7 +117,6 @@
 - [成为养成系练习生后](https://www.yumin66.com/book/ilnir/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.yumin66.com/book/ilnau/)
 - [美貌，不值一提［娱乐圈］](https://www.yumin66.com/book/iln4b/)
-- [靠作死统一忍界！](https://www.yumin66.com/book/ilkq7/)
 - [乱浮生[破镜重圆]](https://www.yumin66.com/book/ilfsl/)
 - [太宗今天又哭了吗](https://www.yumin66.com/book/ilc0b/)
 - [那座本丸没有被讨厌](https://www.yumin66.com/book/ilb63/)
@@ -157,7 +154,6 @@
 - [95美国贵族高中模拟](https://www.yumin66.com/book/1rja6/)
 - [带着签到系统当医生](https://www.yumin66.com/book/1rj8k/)
 - [我是唯一地上神国](https://www.yumin66.com/book/1rj6u/)
-- [据说我是神仙下凡](https://www.yumin66.com/book/1rj2o/)
 - [全民求生:从小木屋到魔法农场](https://www.yumin66.com/book/1ritm/)
 - [我真不是算命的！[香江]](https://www.yumin66.com/book/1riqh/)
 - [[诡秘之主]邪神误入塔罗会](https://www.yumin66.com/book/1rip8/)
@@ -170,7 +166,6 @@
 - [五十年代港城日常](https://www.yumin66.com/book/1rhj3/)
 - [卧底后被港岛大小姐缠上了](https://www.yumin66.com/book/1rhfj/)
 - [海岛求生：生活玩家种田囤货](https://www.yumin66.com/book/1rhdr/)
-- [在古代上班的日子](https://www.yumin66.com/book/5uvq/)
 - [清澈女大的六零年代](https://www.yumin66.com/book/5upa/)
 - [高门小婢](https://www.yumin66.com/book/5um3/)
 - [如何扮演源氏重宝](https://www.yumin66.com/book/5uij/)

@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-17 03:23:32
+更新时间：2026-08-18 03:24:38
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
@@ -79,11 +79,10 @@
 - [你老婆不要你了喔](https://www.zuopin666.com/book/8bef6a9/)
 - [绝世美人也能当反派吗[快穿]](https://www.zuopin666.com/book/8beerid/)
 - [古代种田养娃日常](https://www.zuopin666.com/book/8beer7n/)
-- [石库门一家人[八零]](https://www.zuopin666.com/book/8beer3k/)
+- [沪上弄堂里的小日子[八零]](https://www.zuopin666.com/book/8beer3k/)
 - [被反派暴君听到心声后[穿书]](https://www.zuopin666.com/book/8beedo6/)
 - [老公对不起](https://www.zuopin666.com/book/8beecq6/)
 - [穿Prada的亚裔超模](https://www.zuopin666.com/book/8bee2e6/)
-- [我剑](https://www.zuopin666.com/book/8bedo5o/)
 - [末日安全屋囤货求生](https://www.zuopin666.com/book/8bedhhe/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zuopin666.com/book/8bedh39/)
 - [病弱，但攻了顶1 [快穿]](https://www.zuopin666.com/book/8bedf89/)
@@ -99,11 +98,10 @@
 - [[三国]穿成名士，极限求生](https://www.zuopin666.com/book/8bec6hv/)
 - [和心机大小姐成为室友后](https://www.zuopin666.com/book/8bec5c9/)
 - [总有小动物来找我报案](https://www.zuopin666.com/book/8bec4tc/)
+- [绝色美人模拟器](https://www.zuopin666.com/book/8bec37j/)
 - [不知蝴蝶远](https://www.zuopin666.com/book/8bec2k6/)
 - [被退婚龙傲天强取豪夺了](https://www.zuopin666.com/book/8bec16u/)
-- [[足球]德布劳内养鼠日记](https://www.zuopin666.com/book/8bebqkt/)
 - [前女友孩子三岁了](https://www.zuopin666.com/book/qntg9e/)
-- [死遁的亡夫们都回来了](https://www.zuopin666.com/book/qntcpn/)
 - [她是反派的背景板母亲](https://www.zuopin666.com/book/qntc35/)
 - [在大明当陪房](https://www.zuopin666.com/book/qntbv5/)
 - [梦鱼记](https://www.zuopin666.com/book/qntal5/)
@@ -119,7 +117,6 @@
 - [成为养成系练习生后](https://www.zuopin666.com/book/qnt4e5/)
 - [青梅她是诱系直女[娱乐圈]](https://www.zuopin666.com/book/qnt41q/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.zuopin666.com/book/qnt33s/)
-- [靠作死统一忍界！](https://www.zuopin666.com/book/qnt1a9/)
 - [太宗今天又哭了吗](https://www.zuopin666.com/book/qnsraa/)
 - [乱浮生[破镜重圆]](https://www.zuopin666.com/book/qnsqmn/)
 - [那座本丸没有被讨厌](https://www.zuopin666.com/book/qnsp2b/)
@@ -159,10 +156,8 @@
 - [高门小婢](https://www.zuopin666.com/book/2lin5d/)
 - [警察，但犯罪大师系统[刑侦]](https://www.zuopin666.com/book/2lin4r/)
 - [大瑛弟国](https://www.zuopin666.com/book/2limst/)
-- [在古代上班的日子](https://www.zuopin666.com/book/2limr5/)
 - [[娱乐圈]过分美丽的她](https://www.zuopin666.com/book/2limn2/)
 - [穿到反派落魄时](https://www.zuopin666.com/book/2liml7/)
-- [据说我是神仙下凡](https://www.zuopin666.com/book/2limc3/)
 - [科学主义魔法学院](https://www.zuopin666.com/book/2lim8i/)
 - [清澈女大的六零年代](https://www.zuopin666.com/book/2lim78/)
 - [猫猫也要养家糊口](https://www.zuopin666.com/book/2lilum/)

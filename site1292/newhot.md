@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-08-17 03:22:11
+更新时间：2026-08-18 03:23:15
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -10,6 +10,8 @@
 ## 最新小说
 - [高嫁之后](https://www.yumin66.com/book/5q5n3q/)
 - [[希腊神话]蛇蛇神生美妙](https://www.yumin66.com/book/5q5n2r/)
+- [给控制狂龙傲天当老婆](https://www.yumin66.com/book/5q5n2n/)
+- [阴郁路人不想被喜欢](https://www.yumin66.com/book/5q5n20/)
 - [纯爱宇智波基本恋爱法](https://www.yumin66.com/book/5q5n0g/)
 - [限制文不是这样的！](https://www.yumin66.com/book/5q5mvp/)
 - [如何嫁给当朝首辅](https://www.yumin66.com/book/5q2upr/)
@@ -17,28 +19,34 @@
 - [穿到法国，但超越者公务员](https://www.yumin66.com/book/5q26h5/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.yumin66.com/book/5q26fm/)
 - [全球进化，而我保持不变](https://www.yumin66.com/book/5q1vh0/)
+- [若清晨所见之蓝](https://www.yumin66.com/book/im2cq/)
 - [她是反派的背景板母亲](https://www.yumin66.com/book/ilvsv/)
-- [新来的室友令人不爽](https://www.yumin66.com/book/ilr6k/)
+- [沈助理又在隐藏他的超能力](https://www.yumin66.com/book/ilsr7/)
 - [误标记隔壁阿姨O之后](https://www.yumin66.com/book/ilo25/)
-- [在立海大玩网球模拟器](https://www.yumin66.com/book/iliak/)
-- [[足球]最佳前锋](https://www.yumin66.com/book/ildt3/)
-- [养了一个废太子](https://www.yumin66.com/book/il9pl/)
-- [被迫臣服冰山顶级大小姐O](https://www.yumin66.com/book/il8co/)
-- [咕哒，菜菜，捞捞](https://www.yumin66.com/book/il83f/)
+- [死遁后冰山O怀了我的崽](https://www.yumin66.com/book/ilnkq/)
+- [[足球]可以来利物浦踢后腰吗](https://www.yumin66.com/book/ilmj5/)
+- [可是你也砂锅我](https://www.yumin66.com/book/ilkaq/)
+- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.yumin66.com/book/ilgg6/)
+- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.yumin66.com/book/ilb1q/)
+- [宇智波的遗产](https://www.yumin66.com/book/il8c1/)
+- [阴阳师也可以打网球](https://www.yumin66.com/book/il5fj/)
+- [你也没死？](https://www.yumin66.com/book/il4h3/)
 - [我与龙傲天寿命共享](https://www.yumin66.com/book/il367/)
 - [[秦]公子扶苏](https://www.yumin66.com/book/il31c/)
+- [这谁的沙雕二次元心声！](https://www.yumin66.com/book/il1eo/)
 - [小丧尸也要被迫求生吗](https://www.yumin66.com/book/il17f/)
 - [死遁后成了忍界白月光？](https://www.yumin66.com/book/il0pk/)
+- [老婆是恋爱脑女配](https://www.yumin66.com/book/il0gt/)
 - [老公是松散生命体](https://www.yumin66.com/book/ikvsh/)
 - [在魔法世界屯田争霸](https://www.yumin66.com/book/ikqie/)
+- [东北土豪娇养小甜心后](https://www.yumin66.com/book/ikpr6/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yumin66.com/book/ikll5/)
-- [误入反派培养直播后](https://www.yumin66.com/book/ikkeb/)
-- [多梦你一会儿](https://www.yumin66.com/book/ikk5b/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.yumin66.com/book/ikhud/)
-- [拯救世界从扮演反派开始](https://www.yumin66.com/book/ikggt/)
+- [[足球]罗蜜第一志愿](https://www.yumin66.com/book/ikgn3/)
 - [八零恶毒后妈杀疯了](https://www.yumin66.com/book/ikdvf/)
 - [在民俗惊悚片被诸神庇护](https://www.yumin66.com/book/ik5hi/)
-- [贝利珠](https://www.yumin66.com/book/5v88/)
+- [哥你不能不要我](https://www.yumin66.com/book/ijvg6/)
+- [被奇犽告白以后](https://www.yumin66.com/book/1ri13/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1292/index.md)

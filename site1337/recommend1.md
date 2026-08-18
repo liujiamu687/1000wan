@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-17 03:12:00
+更新时间：2026-08-18 03:12:27
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -55,6 +55,7 @@
 - [小社恐在荒星种草致富](https://www.cq082.com/book/1sddein/)
 - [长兄之妻](https://www.cq082.com/book/1sddeeg/)
 - [受气包A被清冷美人欺负了](https://www.cq082.com/book/1sddedi/)
+- [绝色美人模拟器](https://www.cq082.com/book/1sddec1/)
 - [绝世美人也能当反派吗[快穿]](https://www.cq082.com/book/1sddebb/)
 - [名柯是子供向](https://www.cq082.com/book/1sdde5v/)
 - [被退婚龙傲天强取豪夺了](https://www.cq082.com/book/1sdde41/)
@@ -83,7 +84,6 @@
 - [在大明当陪房](https://www.cq082.com/book/1sdd9jf/)
 - [风月债](https://www.cq082.com/book/1sdd7en/)
 - [[希腊神话]蛇蛇神生美妙](https://www.cq082.com/book/1sdd4nt/)
-- [[足球]德布劳内养鼠日记](https://www.cq082.com/book/1sdd4h5/)
 - [科学主义魔法学院](https://www.cq082.com/book/1sdd31l/)
 - [梦鱼记](https://www.cq082.com/book/1sdcu3q/)
 - [一个被穿越男占有的老实寡妇](https://www.cq082.com/book/1sdcsth/)
@@ -95,7 +95,6 @@
 - [欸？我不是玩家吗？！](https://www.cq082.com/book/1sdcmbu/)
 - [青梅她是诱系直女[娱乐圈]](https://www.cq082.com/book/1sdclbi/)
 - [美貌，不值一提［娱乐圈］](https://www.cq082.com/book/1sdcia9/)
-- [靠作死统一忍界！](https://www.cq082.com/book/1sdch9a/)
 - [乱浮生[破镜重圆]](https://www.cq082.com/book/1sdce4b/)
 - [太宗今天又哭了吗](https://www.cq082.com/book/1sdcbnv/)
 - [高嫁之后](https://www.cq082.com/book/1sdcb41/)
@@ -131,9 +130,8 @@
 - [玉轸（古代ABO）](https://www.cq082.com/book/1sdbd4r/)
 - [高三生不可以玩诡异游戏！](https://www.cq082.com/book/1sdbcn6/)
 - [予你之名[GB]](https://www.cq082.com/book/1sdbcj6/)
-- [石库门一家人[八零]](https://www.cq082.com/book/1sdbbm2/)
+- [沪上弄堂里的小日子[八零]](https://www.cq082.com/book/1sdbbm2/)
 - [末日安全屋囤货求生](https://www.cq082.com/book/1sdbba5/)
-- [死遁的亡夫们都回来了](https://www.cq082.com/book/1sdb9i5/)
 - [刑部的小衙门](https://www.cq082.com/book/1sdb4qq/)
 - [致富，文旅项目是穿越](https://www.cq082.com/book/1sdb474/)
 - [错把魔尊当感化对象](https://www.cq082.com/book/1sdasc0/)
@@ -150,17 +148,14 @@
 - [如何扮演源氏重宝](https://www.cq082.com/book/1sd9v8b/)
 - [猫猫也要养家糊口](https://www.cq082.com/book/1sd9v4a/)
 - [我真不是算命的！[香江]](https://www.cq082.com/book/1sd9v2h/)
-- [在古代上班的日子](https://www.cq082.com/book/1sd9uuv/)
 - [古代种田养娃日常](https://www.cq082.com/book/1sd9usb/)
 - [穿到反派落魄时](https://www.cq082.com/book/1sd9us7/)
 - [[足球]恋与内斯塔](https://www.cq082.com/book/1sd9ulh/)
 - [巨物致富：回乡开钓场](https://www.cq082.com/book/1sd9ul9/)
 - [穿成炮灰后我封神了［快穿］](https://www.cq082.com/book/1sd9ugd/)
 - [你们蜘蛛巢怎么这样？](https://www.cq082.com/book/1sd9uf0/)
-- [我剑](https://www.cq082.com/book/1sd9ueg/)
 - [[咒回]绝不会喜欢五条君的！](https://www.cq082.com/book/1sd9ud8/)
 - [在惊悚片里当灵媒[综恐]](https://www.cq082.com/book/1sd9u83/)
-- [据说我是神仙下凡](https://www.cq082.com/book/1sd9u7j/)
 - [你就是那个Beta？](https://www.cq082.com/book/1sd9u4k/)
 - [御兽师，我打工养你啊](https://www.cq082.com/book/1sd9tv7/)
 - [高门小婢](https://www.cq082.com/book/1sd9tt3/)
