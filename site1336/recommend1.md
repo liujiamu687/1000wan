@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-08-17 03:12:12
+更新时间：2026-08-18 03:12:40
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
@@ -38,6 +38,7 @@
 - [看上表弟的漂亮跟班后](https://www.dasenluan.com/book/3jmfie9/)
 - [仙门透明人被迫万人迷](https://www.dasenluan.com/book/3jmfidm/)
 - [朕与皇后天生一对](https://www.dasenluan.com/book/3jmfi7t/)
+- [绝色美人模拟器](https://www.dasenluan.com/book/3jmfi4t/)
 - [[诡秘之主]邪神误入塔罗会](https://www.dasenluan.com/book/3jmfi4j/)
 - [被退婚龙傲天强取豪夺了](https://www.dasenluan.com/book/3jmfhuf/)
 - [名柯是子供向](https://www.dasenluan.com/book/3jmfhsq/)
@@ -82,7 +83,6 @@
 - [阴郁路人不想被喜欢](https://www.dasenluan.com/book/3jmfd7h/)
 - [在大明当陪房](https://www.dasenluan.com/book/3jmfbpo/)
 - [风月债](https://www.dasenluan.com/book/3jmfbd9/)
-- [[足球]德布劳内养鼠日记](https://www.dasenluan.com/book/3jmf88v/)
 - [[希腊神话]蛇蛇神生美妙](https://www.dasenluan.com/book/3jmf887/)
 - [科学主义魔法学院](https://www.dasenluan.com/book/3jmf5iu/)
 - [梦鱼记](https://www.dasenluan.com/book/3jmf2bn/)
@@ -95,7 +95,6 @@
 - [欸？我不是玩家吗？！](https://www.dasenluan.com/book/3jmepsm/)
 - [青梅她是诱系直女[娱乐圈]](https://www.dasenluan.com/book/3jmeprt/)
 - [美貌，不值一提［娱乐圈］](https://www.dasenluan.com/book/3jmenjb/)
-- [靠作死统一忍界！](https://www.dasenluan.com/book/3jmek5s/)
 - [乱浮生[破镜重圆]](https://www.dasenluan.com/book/3jmehce/)
 - [太宗今天又哭了吗](https://www.dasenluan.com/book/3jmee8p/)
 - [高嫁之后](https://www.dasenluan.com/book/3jmedqu/)
@@ -131,8 +130,7 @@
 - [雄虫他穿回来了](https://www.dasenluan.com/book/3jmdha5/)
 - [魔物堆里的人类幼崽](https://www.dasenluan.com/book/3jmdh6r/)
 - [冷脸萌今天也想谋杀亲夫](https://www.dasenluan.com/book/3jmdgkp/)
-- [死遁的亡夫们都回来了](https://www.dasenluan.com/book/3jmdfff/)
-- [石库门一家人[八零]](https://www.dasenluan.com/book/3jmdf2n/)
+- [沪上弄堂里的小日子[八零]](https://www.dasenluan.com/book/3jmdf2n/)
 - [末日安全屋囤货求生](https://www.dasenluan.com/book/3jmdecg/)
 - [刑部的小衙门](https://www.dasenluan.com/book/3jmd972/)
 - [致富，文旅项目是穿越](https://www.dasenluan.com/book/3jmd8ti/)
@@ -141,12 +139,10 @@
 - [[足球]恋与内斯塔](https://www.dasenluan.com/book/3jmc3ea/)
 - [她是反派的背景板母亲](https://www.dasenluan.com/book/3jmc3dh/)
 - [穿成炮灰后我封神了［快穿］](https://www.dasenluan.com/book/3jmc3cu/)
-- [在古代上班的日子](https://www.dasenluan.com/book/3jmc3c2/)
 - [御兽师，我打工养你啊](https://www.dasenluan.com/book/3jmc39g/)
 - [大瑛弟国](https://www.dasenluan.com/book/3jmc355/)
 - [穿到反派落魄时](https://www.dasenluan.com/book/3jmc34k/)
 - [天幕今天也在直播我搞基建](https://www.dasenluan.com/book/3jmc2ul/)
-- [据说我是神仙下凡](https://www.dasenluan.com/book/3jmc2tf/)
 - [成为养成系练习生后](https://www.dasenluan.com/book/3jmc2rp/)
 - [日化人生[科研]](https://www.dasenluan.com/book/3jmc2qi/)
 - [如何扮演源氏重宝](https://www.dasenluan.com/book/3jmc2qg/)
@@ -156,7 +152,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.dasenluan.com/book/3jmc2cj/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.dasenluan.com/book/3jmc2ap/)
 - [古代种田养娃日常](https://www.dasenluan.com/book/3jmc25f/)
-- [我剑](https://www.dasenluan.com/book/3jmc23d/)
 - [95美国贵族高中模拟](https://www.dasenluan.com/book/3jmc1up/)
 - [[娱乐圈]过分美丽的她](https://www.dasenluan.com/book/3jmc1i4/)
 - [在惊悚片里当灵媒[综恐]](https://www.dasenluan.com/book/3jmc1fa/)

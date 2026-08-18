@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-17 03:11:19
+更新时间：2026-08-18 03:11:46
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -79,11 +79,10 @@
 - [你老婆不要你了喔](https://www.chuangyi1687.com/book/1hvgdn3/)
 - [古代种田养娃日常](https://www.chuangyi1687.com/book/1hvg29s/)
 - [绝世美人也能当反派吗[快穿]](https://www.chuangyi1687.com/book/1hvg28g/)
-- [石库门一家人[八零]](https://www.chuangyi1687.com/book/1hvg212/)
+- [沪上弄堂里的小日子[八零]](https://www.chuangyi1687.com/book/1hvg212/)
 - [被反派暴君听到心声后[穿书]](https://www.chuangyi1687.com/book/1hvfkqb/)
 - [老公对不起](https://www.chuangyi1687.com/book/1hvfapp/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.chuangyi1687.com/book/1hvf6d2/)
-- [我剑](https://www.chuangyi1687.com/book/1hvf5pp/)
 - [穿Prada的亚裔超模](https://www.chuangyi1687.com/book/1hvf4c7/)
 - [末日安全屋囤货求生](https://www.chuangyi1687.com/book/1hveto4/)
 - [病弱，但攻了顶1 [快穿]](https://www.chuangyi1687.com/book/1hvelo6/)
@@ -97,14 +96,13 @@
 - [天幕剧透拆家幼崽是千古一帝](https://www.chuangyi1687.com/book/1hvdie4/)
 - [巨物致富：回乡开钓场](https://www.chuangyi1687.com/book/1hvdhup/)
 - [[三国]穿成名士，极限求生](https://www.chuangyi1687.com/book/1hvdfgu/)
+- [绝色美人模拟器](https://www.chuangyi1687.com/book/1hvdd5b/)
 - [不知蝴蝶远](https://www.chuangyi1687.com/book/1hvdcdl/)
 - [总有小动物来找我报案](https://www.chuangyi1687.com/book/1hvdbvu/)
 - [和心机大小姐成为室友后](https://www.chuangyi1687.com/book/1hvdbs5/)
 - [被退婚龙傲天强取豪夺了](https://www.chuangyi1687.com/book/1hvd8g3/)
-- [[足球]德布劳内养鼠日记](https://www.chuangyi1687.com/book/1hvd172/)
 - [前女友孩子三岁了](https://www.chuangyi1687.com/book/500qcg/)
 - [她是反派的背景板母亲](https://www.chuangyi1687.com/book/500o0c/)
-- [死遁的亡夫们都回来了](https://www.chuangyi1687.com/book/500nuc/)
 - [在大明当陪房](https://www.chuangyi1687.com/book/500lck/)
 - [梦鱼记](https://www.chuangyi1687.com/book/500k9q/)
 - [天幕今天也在直播我搞基建](https://www.chuangyi1687.com/book/500jp8/)
@@ -119,7 +117,6 @@
 - [死遁后冰山O怀了我的崽](https://www.chuangyi1687.com/book/500d7i/)
 - [成为养成系练习生后](https://www.chuangyi1687.com/book/500d4n/)
 - [美貌，不值一提［娱乐圈］](https://www.chuangyi1687.com/book/500d2v/)
-- [靠作死统一忍界！](https://www.chuangyi1687.com/book/5009g0/)
 - [太宗今天又哭了吗](https://www.chuangyi1687.com/book/5006hs/)
 - [乱浮生[破镜重圆]](https://www.chuangyi1687.com/book/5005s7/)
 - [那座本丸没有被讨厌](https://www.chuangyi1687.com/book/5004r3/)
@@ -170,8 +167,6 @@
 - [[诡秘之主]邪神误入塔罗会](https://www.chuangyi1687.com/book/fvq89/)
 - [如何扮演源氏重宝](https://www.chuangyi1687.com/book/fvq09/)
 - [猫猫也要养家糊口](https://www.chuangyi1687.com/book/fvq05/)
-- [据说我是神仙下凡](https://www.chuangyi1687.com/book/1j6do/)
-- [在古代上班的日子](https://www.chuangyi1687.com/book/1j69m/)
 - [海岛求生：生活玩家种田囤货](https://www.chuangyi1687.com/book/1j623/)
 - [带着签到系统当医生](https://www.chuangyi1687.com/book/1j613/)
 - [警察，但犯罪大师系统[刑侦]](https://www.chuangyi1687.com/book/1j5r0/)

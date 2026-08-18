@@ -1,13 +1,22 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-08-17 03:17:56
+更新时间：2026-08-18 03:18:30
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
 - [奇幻凤影台小说](https://www.qihuan868.com/)
 
 ## 最新小说
+- [阴郁路人不想被喜欢](https://www.qihuan868.com/book/42i8cb8/)
+- [纯爱宇智波基本恋爱法](https://www.qihuan868.com/book/42i8b5f/)
+- [限制文不是这样的！](https://www.qihuan868.com/book/42i8asv/)
+- [高嫁之后](https://www.qihuan868.com/book/42i8apt/)
+- [[希腊神话]蛇蛇神生美妙](https://www.qihuan868.com/book/42i8adb/)
+- [她是反派的背景板母亲](https://www.qihuan868.com/book/42i8a44/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.qihuan868.com/book/42i8a3k/)
+- [给控制狂龙傲天当老婆](https://www.qihuan868.com/book/42i89bv/)
+- [死遁后冰山O怀了我的崽](https://www.qihuan868.com/book/42i8973/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1346/index.md)

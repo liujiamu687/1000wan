@@ -1,15 +1,18 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-17 03:11:19
+更新时间：2026-08-18 03:11:46
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
 - [创意小说网](https://www.chuangyi1687.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.chuangyi1687.com/book/1hvgoo4/)
 - [限制文不是这样的！](https://www.chuangyi1687.com/book/1hvgong/)
+- [给控制狂龙傲天当老婆](https://www.chuangyi1687.com/book/1hvgol4/)
 - [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
+- [阴郁路人不想被喜欢](https://www.chuangyi1687.com/book/1hvgoju/)
 - [[希腊神话]蛇蛇神生美妙](https://www.chuangyi1687.com/book/1hvgojp/)
 - [高嫁之后](https://www.chuangyi1687.com/book/1hvgoje/)
 - [我的老公是暴君](https://www.chuangyi1687.com/book/1hvfktl/)
@@ -18,27 +21,33 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.chuangyi1687.com/book/1hvd9p4/)
 - [全球进化，而我保持不变](https://www.chuangyi1687.com/book/500oa4/)
 - [她是反派的背景板母亲](https://www.chuangyi1687.com/book/500o0c/)
+- [若清晨所见之蓝](https://www.chuangyi1687.com/book/500nm1/)
+- [沈助理又在隐藏他的超能力](https://www.chuangyi1687.com/book/500j2q/)
 - [误标记隔壁阿姨O之后](https://www.chuangyi1687.com/book/500h5o/)
-- [新来的室友令人不爽](https://www.chuangyi1687.com/book/500gro/)
-- [在立海大玩网球模拟器](https://www.chuangyi1687.com/book/5006mq/)
-- [被迫臣服冰山顶级大小姐O](https://www.chuangyi1687.com/book/5002vu/)
-- [[足球]最佳前锋](https://www.chuangyi1687.com/book/5002re/)
-- [养了一个废太子](https://www.chuangyi1687.com/book/5002gt/)
-- [咕哒，菜菜，捞捞](https://www.chuangyi1687.com/book/4vvt07/)
+- [死遁后冰山O怀了我的崽](https://www.chuangyi1687.com/book/500d7i/)
+- [[足球]可以来利物浦踢后腰吗](https://www.chuangyi1687.com/book/500b0v/)
+- [可是你也砂锅我](https://www.chuangyi1687.com/book/5009u2/)
+- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.chuangyi1687.com/book/5005jt/)
+- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.chuangyi1687.com/book/4vvvc6/)
+- [宇智波的遗产](https://www.chuangyi1687.com/book/4vvuf7/)
+- [阴阳师也可以打网球](https://www.chuangyi1687.com/book/4vvt0k/)
 - [[秦]公子扶苏](https://www.chuangyi1687.com/book/4vvpt5/)
 - [我与龙傲天寿命共享](https://www.chuangyi1687.com/book/4vvpqr/)
+- [你也没死？](https://www.chuangyi1687.com/book/4vvpnn/)
 - [死遁后成了忍界白月光？](https://www.chuangyi1687.com/book/4vvpfu/)
+- [老婆是恋爱脑女配](https://www.chuangyi1687.com/book/4vvpdt/)
 - [小丧尸也要被迫求生吗](https://www.chuangyi1687.com/book/4vvngj/)
+- [这谁的沙雕二次元心声！](https://www.chuangyi1687.com/book/4vvm7l/)
 - [老公是松散生命体](https://www.chuangyi1687.com/book/4vvljq/)
+- [东北土豪娇养小甜心后](https://www.chuangyi1687.com/book/4vvfl7/)
 - [在魔法世界屯田争霸](https://www.chuangyi1687.com/book/4vvevl/)
-- [误入反派培养直播后](https://www.chuangyi1687.com/book/4vvef4/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.chuangyi1687.com/book/4vvavq/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.chuangyi1687.com/book/4vvaqt/)
-- [多梦你一会儿](https://www.chuangyi1687.com/book/4vvakb/)
-- [拯救世界从扮演反派开始](https://www.chuangyi1687.com/book/4vv7fs/)
+- [[足球]罗蜜第一志愿](https://www.chuangyi1687.com/book/4vv7ka/)
 - [八零恶毒后妈杀疯了](https://www.chuangyi1687.com/book/4vv4bi/)
 - [在民俗惊悚片被诸神庇护](https://www.chuangyi1687.com/book/4vutmn/)
-- [贝利珠](https://www.chuangyi1687.com/book/1j5v2/)
+- [哥你不能不要我](https://www.chuangyi1687.com/book/4vumbd/)
+- [被奇犽告白以后](https://www.chuangyi1687.com/book/1j6ar/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1316/index.md)
