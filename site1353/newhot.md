@@ -1,13 +1,22 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-17 03:19:32
+更新时间：2026-08-18 03:20:13
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
 - [书社1687小说免费](https://www.shushe1687.com/)
 
 ## 最新小说
+- [[足球]幼年巨星被豪门主席强买之后](https://www.shushe1687.com/book/489bnrm/)
+- [[希腊神话]蛇蛇神生美妙](https://www.shushe1687.com/book/489bno4/)
+- [她是反派的背景板母亲](https://www.shushe1687.com/book/489bngs/)
+- [高嫁之后](https://www.shushe1687.com/book/489bn41/)
+- [死遁后冰山O怀了我的崽](https://www.shushe1687.com/book/489bmqm/)
+- [给控制狂龙傲天当老婆](https://www.shushe1687.com/book/489bmja/)
+- [纯爱宇智波基本恋爱法](https://www.shushe1687.com/book/489blvd/)
+- [限制文不是这样的！](https://www.shushe1687.com/book/489bltm/)
+- [阴郁路人不想被喜欢](https://www.shushe1687.com/book/489bljo/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1353/index.md)

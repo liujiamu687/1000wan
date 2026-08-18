@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-17 03:20:29
+更新时间：2026-08-18 03:21:19
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -79,11 +79,10 @@
 - [你老婆不要你了喔](https://www.wsfsx.com/book/5ts1u3t/)
 - [绝世美人也能当反派吗[快穿]](https://www.wsfsx.com/book/5ts180d/)
 - [古代种田养娃日常](https://www.wsfsx.com/book/5ts17qf/)
-- [石库门一家人[八零]](https://www.wsfsx.com/book/5ts17h3/)
+- [沪上弄堂里的小日子[八零]](https://www.wsfsx.com/book/5ts17h3/)
 - [被反派暴君听到心声后[穿书]](https://www.wsfsx.com/book/5ts0qv5/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wsfsx.com/book/5ts0p9l/)
 - [老公对不起](https://www.wsfsx.com/book/5ts0lhe/)
-- [我剑](https://www.wsfsx.com/book/5ts0fp9/)
 - [穿Prada的亚裔超模](https://www.wsfsx.com/book/5ts0d23/)
 - [末日安全屋囤货求生](https://www.wsfsx.com/book/5ts0clv/)
 - [病弱，但攻了顶1 [快穿]](https://www.wsfsx.com/book/5ts04db/)
@@ -99,11 +98,10 @@
 - [[三国]穿成名士，极限求生](https://www.wsfsx.com/book/5truv7d/)
 - [和心机大小姐成为室友后](https://www.wsfsx.com/book/5trutsq/)
 - [总有小动物来找我报案](https://www.wsfsx.com/book/5trutkc/)
+- [绝色美人模拟器](https://www.wsfsx.com/book/5trusqa/)
 - [不知蝴蝶远](https://www.wsfsx.com/book/5trupbv/)
 - [被退婚龙傲天强取豪夺了](https://www.wsfsx.com/book/5truoeh/)
-- [[足球]德布劳内养鼠日记](https://www.wsfsx.com/book/5truk18/)
 - [前女友孩子三岁了](https://www.wsfsx.com/book/ivlonf/)
-- [死遁的亡夫们都回来了](https://www.wsfsx.com/book/ivlnh0/)
 - [她是反派的背景板母亲](https://www.wsfsx.com/book/ivlm3t/)
 - [天幕今天也在直播我搞基建](https://www.wsfsx.com/book/ivljvm/)
 - [梦鱼记](https://www.wsfsx.com/book/ivlisf/)
@@ -119,7 +117,6 @@
 - [谁知权臣是女郎](https://www.wsfsx.com/book/ivlcn5/)
 - [成为养成系练习生后](https://www.wsfsx.com/book/ivlc5d/)
 - [死遁后冰山O怀了我的崽](https://www.wsfsx.com/book/ivlbf9/)
-- [靠作死统一忍界！](https://www.wsfsx.com/book/ivl9h0/)
 - [乱浮生[破镜重圆]](https://www.wsfsx.com/book/ivl5mo/)
 - [太宗今天又哭了吗](https://www.wsfsx.com/book/ivl177/)
 - [那座本丸没有被讨厌](https://www.wsfsx.com/book/ivl0ad/)
@@ -163,12 +160,10 @@
 - [全民求生:从小木屋到魔法农场](https://www.wsfsx.com/book/1soaif/)
 - [带着签到系统当医生](https://www.wsfsx.com/book/1soah4/)
 - [卧底后被港岛大小姐缠上了](https://www.wsfsx.com/book/1soaae/)
-- [在古代上班的日子](https://www.wsfsx.com/book/1soa8u/)
 - [猫猫也要养家糊口](https://www.wsfsx.com/book/1soa8r/)
 - [幼儿园来了个林大厨[七零]](https://www.wsfsx.com/book/1soa80/)
 - [如何扮演源氏重宝](https://www.wsfsx.com/book/1so9up/)
 - [大瑛弟国](https://www.wsfsx.com/book/62ecb/)
-- [据说我是神仙下凡](https://www.wsfsx.com/book/62e93/)
 - [科学主义魔法学院](https://www.wsfsx.com/book/62e8e/)
 - [警察，但犯罪大师系统[刑侦]](https://www.wsfsx.com/book/62e68/)
 - [五十年代港城日常](https://www.wsfsx.com/book/62e5k/)

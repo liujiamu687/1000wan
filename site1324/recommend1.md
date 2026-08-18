@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-08-17 03:20:49
+更新时间：2026-08-18 03:21:42
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -79,10 +79,9 @@
 - [你老婆不要你了喔](https://www.xiaoshuo139.com/book/2ch7itn/)
 - [绝世美人也能当反派吗[快穿]](https://www.xiaoshuo139.com/book/2ch7840/)
 - [古代种田养娃日常](https://www.xiaoshuo139.com/book/2ch77p4/)
-- [石库门一家人[八零]](https://www.xiaoshuo139.com/book/2ch77lb/)
+- [沪上弄堂里的小日子[八零]](https://www.xiaoshuo139.com/book/2ch77lb/)
 - [被反派暴君听到心声后[穿书]](https://www.xiaoshuo139.com/book/2ch6q92/)
 - [老公对不起](https://www.xiaoshuo139.com/book/2ch6pbn/)
-- [我剑](https://www.xiaoshuo139.com/book/2ch6auj/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xiaoshuo139.com/book/2ch664u/)
 - [末日安全屋囤货求生](https://www.xiaoshuo139.com/book/2ch65b8/)
 - [穿Prada的亚裔超模](https://www.xiaoshuo139.com/book/2ch64eu/)
@@ -99,11 +98,10 @@
 - [[三国]穿成名士，极限求生](https://www.xiaoshuo139.com/book/2ch4l78/)
 - [总有小动物来找我报案](https://www.xiaoshuo139.com/book/2ch4h5e/)
 - [和心机大小姐成为室友后](https://www.xiaoshuo139.com/book/2ch4gj6/)
+- [绝色美人模拟器](https://www.xiaoshuo139.com/book/2ch4g2a/)
 - [被退婚龙傲天强取豪夺了](https://www.xiaoshuo139.com/book/2ch4dbp/)
 - [不知蝴蝶远](https://www.xiaoshuo139.com/book/2ch4d9u/)
-- [[足球]德布劳内养鼠日记](https://www.xiaoshuo139.com/book/2ch49bf/)
 - [前女友孩子三岁了](https://www.xiaoshuo139.com/book/7kvt59/)
-- [死遁的亡夫们都回来了](https://www.xiaoshuo139.com/book/7kvqpl/)
 - [在大明当陪房](https://www.xiaoshuo139.com/book/7kvq23/)
 - [她是反派的背景板母亲](https://www.xiaoshuo139.com/book/7kvpua/)
 - [天幕今天也在直播我搞基建](https://www.xiaoshuo139.com/book/7kvp0c/)
@@ -119,7 +117,6 @@
 - [死遁后冰山O怀了我的崽](https://www.xiaoshuo139.com/book/7kvi3l/)
 - [谁知权臣是女郎](https://www.xiaoshuo139.com/book/7kvhur/)
 - [成为养成系练习生后](https://www.xiaoshuo139.com/book/7kvh3j/)
-- [靠作死统一忍界！](https://www.xiaoshuo139.com/book/7kvgod/)
 - [那座本丸没有被讨厌](https://www.xiaoshuo139.com/book/7kvaah/)
 - [乱浮生[破镜重圆]](https://www.xiaoshuo139.com/book/7kva5l/)
 - [太宗今天又哭了吗](https://www.xiaoshuo139.com/book/7kv87a/)
@@ -165,7 +162,6 @@
 - [高门小婢](https://www.xiaoshuo139.com/book/ofnmd/)
 - [[娱乐圈]过分美丽的她](https://www.xiaoshuo139.com/book/ofnfb/)
 - [95美国贵族高中模拟](https://www.xiaoshuo139.com/book/ofnbq/)
-- [在古代上班的日子](https://www.xiaoshuo139.com/book/ofn87/)
 - [科学主义魔法学院](https://www.xiaoshuo139.com/book/ofn73/)
 - [我真不是算命的！[香江]](https://www.xiaoshuo139.com/book/ofn64/)
 - [清澈女大的六零年代](https://www.xiaoshuo139.com/book/2ecg9/)
@@ -174,7 +170,6 @@
 - [五十年代港城日常](https://www.xiaoshuo139.com/book/2ec8m/)
 - [大瑛弟国](https://www.xiaoshuo139.com/book/2ec88/)
 - [卧底后被港岛大小姐缠上了](https://www.xiaoshuo139.com/book/2ec49/)
-- [据说我是神仙下凡](https://www.xiaoshuo139.com/book/2ec2o/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1324/index.md)

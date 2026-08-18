@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-17 03:19:34
+更新时间：2026-08-18 03:20:21
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -10,7 +10,10 @@
 ## 最新小说
 - [限制文不是这样的！](https://www.tiananfoundry.com/book/1ol4mo7/)
 - [纯爱宇智波基本恋爱法](https://www.tiananfoundry.com/book/1ol4mnj/)
+- [给控制狂龙傲天当老婆](https://www.tiananfoundry.com/book/1ol4mmp/)
 - [[希腊神话]蛇蛇神生美妙](https://www.tiananfoundry.com/book/1ol4mm5/)
+- [从异世界穿回来后](https://www.tiananfoundry.com/book/1ol4mkp/)
+- [阴郁路人不想被喜欢](https://www.tiananfoundry.com/book/1ol4mjj/)
 - [高嫁之后](https://www.tiananfoundry.com/book/1ol4mj8/)
 - [我的老公是暴君](https://www.tiananfoundry.com/book/1ol3iv7/)
 - [如何嫁给当朝首辅](https://www.tiananfoundry.com/book/1ol1sp3/)
@@ -18,27 +21,33 @@
 - [穿到法国，但超越者公务员](https://www.tiananfoundry.com/book/1ol17ff/)
 - [全球进化，而我保持不变](https://www.tiananfoundry.com/book/1ol10ce/)
 - [她是反派的背景板母亲](https://www.tiananfoundry.com/book/5lcbps/)
-- [新来的室友令人不爽](https://www.tiananfoundry.com/book/5lc473/)
+- [若清晨所见之蓝](https://www.tiananfoundry.com/book/5lc8i4/)
+- [沈助理又在隐藏他的超能力](https://www.tiananfoundry.com/book/5lc6gu/)
 - [误标记隔壁阿姨O之后](https://www.tiananfoundry.com/book/5lc1a4/)
-- [在立海大玩网球模拟器](https://www.tiananfoundry.com/book/5lbp07/)
-- [被迫臣服冰山顶级大小姐O](https://www.tiananfoundry.com/book/5lbk9g/)
-- [养了一个废太子](https://www.tiananfoundry.com/book/5lbk32/)
-- [[足球]最佳前锋](https://www.tiananfoundry.com/book/5lbj50/)
-- [咕哒，菜菜，捞捞](https://www.tiananfoundry.com/book/5lbfar/)
+- [[足球]可以来利物浦踢后腰吗](https://www.tiananfoundry.com/book/5lc11s/)
+- [死遁后冰山O怀了我的崽](https://www.tiananfoundry.com/book/5lbv35/)
+- [可是你也砂锅我](https://www.tiananfoundry.com/book/5lbug1/)
+- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.tiananfoundry.com/book/5lbojp/)
+- [宇智波的遗产](https://www.tiananfoundry.com/book/5lbjd5/)
+- [阴阳师也可以打网球](https://www.tiananfoundry.com/book/5lbi5i/)
+- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.tiananfoundry.com/book/5lbgu8/)
 - [我与龙傲天寿命共享](https://www.tiananfoundry.com/book/5lbcv4/)
+- [这谁的沙雕二次元心声！](https://www.tiananfoundry.com/book/5lbbn6/)
 - [[秦]公子扶苏](https://www.tiananfoundry.com/book/5lbbgv/)
 - [小丧尸也要被迫求生吗](https://www.tiananfoundry.com/book/5lbbca/)
+- [老婆是恋爱脑女配](https://www.tiananfoundry.com/book/5lbap1/)
+- [你也没死？](https://www.tiananfoundry.com/book/5lba0r/)
 - [死遁后成了忍界白月光？](https://www.tiananfoundry.com/book/5lb9v8/)
 - [老公是松散生命体](https://www.tiananfoundry.com/book/5lb7v6/)
+- [东北土豪娇养小甜心后](https://www.tiananfoundry.com/book/5lb5ec/)
 - [在魔法世界屯田争霸](https://www.tiananfoundry.com/book/5lb0pg/)
-- [误入反派培养直播后](https://www.tiananfoundry.com/book/5lb05p/)
-- [多梦你一会儿](https://www.tiananfoundry.com/book/5lauo5/)
+- [[足球]罗蜜第一志愿](https://www.tiananfoundry.com/book/5lateh/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.tiananfoundry.com/book/5latee/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.tiananfoundry.com/book/5lat9j/)
-- [拯救世界从扮演反派开始](https://www.tiananfoundry.com/book/5laood/)
 - [八零恶毒后妈杀疯了](https://www.tiananfoundry.com/book/5lan99/)
 - [在民俗惊悚片被诸神庇护](https://www.tiananfoundry.com/book/5lagim/)
-- [贝利珠](https://www.tiananfoundry.com/book/1q0i9/)
+- [哥你不能不要我](https://www.tiananfoundry.com/book/5la9h8/)
+- [被奇犽告白以后](https://www.tiananfoundry.com/book/i45ki/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1288/index.md)

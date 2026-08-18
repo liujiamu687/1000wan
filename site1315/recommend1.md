@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-08-17 03:16:24
+更新时间：2026-08-18 03:16:56
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -79,13 +79,12 @@
 - [你老婆不要你了喔](https://www.lianzai007.com/book/6g3mmbp/)
 - [绝世美人也能当反派吗[快穿]](https://www.lianzai007.com/book/6g3masc/)
 - [古代种田养娃日常](https://www.lianzai007.com/book/6g3masa/)
-- [石库门一家人[八零]](https://www.lianzai007.com/book/6g3maku/)
+- [沪上弄堂里的小日子[八零]](https://www.lianzai007.com/book/6g3maku/)
 - [被反派暴君听到心声后[穿书]](https://www.lianzai007.com/book/6g3ltfh/)
 - [老公对不起](https://www.lianzai007.com/book/6g3lje8/)
 - [末日安全屋囤货求生](https://www.lianzai007.com/book/6g3lghc/)
 - [穿Prada的亚裔超模](https://www.lianzai007.com/book/6g3l99c/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.lianzai007.com/book/6g3l7rn/)
-- [我剑](https://www.lianzai007.com/book/6g3l6o7/)
 - [病弱，但攻了顶1 [快穿]](https://www.lianzai007.com/book/6g3ku92/)
 - [你就是那个Beta？](https://www.lianzai007.com/book/6g3kjkb/)
 - [御兽师，我打工养你啊](https://www.lianzai007.com/book/6g3ki3u/)
@@ -97,13 +96,12 @@
 - [天幕剧透拆家幼崽是千古一帝](https://www.lianzai007.com/book/6g3jrli/)
 - [[三国]穿成名士，极限求生](https://www.lianzai007.com/book/6g3jqpp/)
 - [巨物致富：回乡开钓场](https://www.lianzai007.com/book/6g3jqbq/)
+- [绝色美人模拟器](https://www.lianzai007.com/book/6g3jnn4/)
 - [不知蝴蝶远](https://www.lianzai007.com/book/6g3jk8f/)
 - [总有小动物来找我报案](https://www.lianzai007.com/book/6g3jjsh/)
 - [和心机大小姐成为室友后](https://www.lianzai007.com/book/6g3jj8a/)
 - [被退婚龙傲天强取豪夺了](https://www.lianzai007.com/book/6g3jham/)
-- [[足球]德布劳内养鼠日记](https://www.lianzai007.com/book/6g3jc1g/)
 - [前女友孩子三岁了](https://www.lianzai007.com/book/kq1ekh/)
-- [死遁的亡夫们都回来了](https://www.lianzai007.com/book/kq1a6e/)
 - [她是反派的背景板母亲](https://www.lianzai007.com/book/kq19um/)
 - [在大明当陪房](https://www.lianzai007.com/book/kq19dn/)
 - [梦鱼记](https://www.lianzai007.com/book/kq18gt/)
@@ -119,7 +117,6 @@
 - [谁知权臣是女郎](https://www.lianzai007.com/book/kq118p/)
 - [美貌，不值一提［娱乐圈］](https://www.lianzai007.com/book/kq10nd/)
 - [成为养成系练习生后](https://www.lianzai007.com/book/kq10kf/)
-- [靠作死统一忍界！](https://www.lianzai007.com/book/kq0vbg/)
 - [那座本丸没有被讨厌](https://www.lianzai007.com/book/kq0q1h/)
 - [乱浮生[破镜重圆]](https://www.lianzai007.com/book/kq0oea/)
 - [太宗今天又哭了吗](https://www.lianzai007.com/book/kq0nnh/)
@@ -169,8 +166,6 @@
 - [穿到反派落魄时](https://www.lianzai007.com/book/6l42e/)
 - [我真不是算命的！[香江]](https://www.lianzai007.com/book/6l41o/)
 - [科学主义魔法学院](https://www.lianzai007.com/book/6l3uc/)
-- [据说我是神仙下凡](https://www.lianzai007.com/book/6l3s6/)
-- [在古代上班的日子](https://www.lianzai007.com/book/6l3jr/)
 - [警察，但犯罪大师系统[刑侦]](https://www.lianzai007.com/book/6l3io/)
 - [清澈女大的六零年代](https://www.lianzai007.com/book/6l3im/)
 - [[诡秘之主]邪神误入塔罗会](https://www.lianzai007.com/book/6l3ii/)
