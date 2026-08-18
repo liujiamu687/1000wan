@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-17 03:17:43
+更新时间：2026-08-18 03:18:17
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
@@ -48,6 +48,7 @@
 - [千禧年，拆迁分了十栋楼！](https://www.pusytgp.com/book/7pbmrpq/)
 - [废土旅馆基建指南](https://www.pusytgp.com/book/7pbmrnv/)
 - [阴湿绿茶攻满级重生后](https://www.pusytgp.com/book/7pbmrn5/)
+- [绝色美人模拟器](https://www.pusytgp.com/book/7pbmrms/)
 - [女扮男装科举和皇帝撞脸了！](https://www.pusytgp.com/book/7pbmrkh/)
 - [不做通房](https://www.pusytgp.com/book/7pbmrjf/)
 - [折辱男主后女配死遁了](https://www.pusytgp.com/book/7pbmrge/)
@@ -83,7 +84,6 @@
 - [在大明当陪房](https://www.pusytgp.com/book/7pbmm36/)
 - [风月债](https://www.pusytgp.com/book/7pbml4q/)
 - [[希腊神话]蛇蛇神生美妙](https://www.pusytgp.com/book/7pbmjqc/)
-- [[足球]德布劳内养鼠日记](https://www.pusytgp.com/book/7pbmj8h/)
 - [科学主义魔法学院](https://www.pusytgp.com/book/7pbmgmg/)
 - [梦鱼记](https://www.pusytgp.com/book/7pbmf0q/)
 - [一个被穿越男占有的老实寡妇](https://www.pusytgp.com/book/7pbmape/)
@@ -95,7 +95,6 @@
 - [青梅她是诱系直女[娱乐圈]](https://www.pusytgp.com/book/7pbm63i/)
 - [欸？我不是玩家吗？！](https://www.pusytgp.com/book/7pbm5qv/)
 - [美貌，不值一提［娱乐圈］](https://www.pusytgp.com/book/7pbm0ue/)
-- [靠作死统一忍界！](https://www.pusytgp.com/book/7pblufc/)
 - [乱浮生[破镜重圆]](https://www.pusytgp.com/book/7pblsv9/)
 - [太宗今天又哭了吗](https://www.pusytgp.com/book/7pblpc5/)
 - [高嫁之后](https://www.pusytgp.com/book/7pblp0n/)
@@ -131,8 +130,7 @@
 - [高三生不可以玩诡异游戏！](https://www.pusytgp.com/book/7pbkr6p/)
 - [雄虫他穿回来了](https://www.pusytgp.com/book/7pbkr5j/)
 - [予你之名[GB]](https://www.pusytgp.com/book/7pbkr3q/)
-- [石库门一家人[八零]](https://www.pusytgp.com/book/7pbkpqk/)
-- [死遁的亡夫们都回来了](https://www.pusytgp.com/book/7pbko1i/)
+- [沪上弄堂里的小日子[八零]](https://www.pusytgp.com/book/7pbkpqk/)
 - [末日安全屋囤货求生](https://www.pusytgp.com/book/7pbknui/)
 - [致富，文旅项目是穿越](https://www.pusytgp.com/book/7pbkjg6/)
 - [刑部的小衙门](https://www.pusytgp.com/book/7pbkhuv/)
@@ -161,17 +159,14 @@
 - [巨物致富：回乡开钓场](https://www.pusytgp.com/book/7pbjcqs/)
 - [古代种田养娃日常](https://www.pusytgp.com/book/7pbjcmk/)
 - [高门小婢](https://www.pusytgp.com/book/7pbjchb/)
-- [我剑](https://www.pusytgp.com/book/7pbjcg8/)
 - [成为养成系练习生后](https://www.pusytgp.com/book/7pbjcff/)
 - [六零之成了卷王的妹妹](https://www.pusytgp.com/book/7pbjc8s/)
 - [我是唯一地上神国](https://www.pusytgp.com/book/7pbjc34/)
-- [据说我是神仙下凡](https://www.pusytgp.com/book/7pbjc2v/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.pusytgp.com/book/7pbjbu8/)
 - [你们蜘蛛巢怎么这样？](https://www.pusytgp.com/book/7pbjbrd/)
 - [我有一座安全城](https://www.pusytgp.com/book/7pbjbp1/)
 - [全民求生:从小木屋到魔法农场](https://www.pusytgp.com/book/7pbjbo2/)
 - [穿到反派落魄时](https://www.pusytgp.com/book/7pbjbnr/)
-- [在古代上班的日子](https://www.pusytgp.com/book/7pbjblr/)
 - [如何扮演源氏重宝](https://www.pusytgp.com/book/7pbjbf1/)
 - [猫猫也要养家糊口](https://www.pusytgp.com/book/7pbjbdj/)
 - [卧底后被港岛大小姐缠上了](https://www.pusytgp.com/book/7pbjbdd/)

@@ -1,13 +1,14 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-16 03:07:06
+更新时间：2026-08-18 03:11:46
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
 - [创意小说网](https://www.chuangyi1687.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.chuangyi1687.com/book/1hvgood/)
 - [全家穿越：从面摊开始致富](https://www.chuangyi1687.com/book/1hvgooc/)
 - [直上青云[八零]](https://www.chuangyi1687.com/book/1hvgoob/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.chuangyi1687.com/book/1hvgoo9/)
@@ -56,7 +57,6 @@
 - [[希腊神话]蛇蛇神生美妙](https://www.chuangyi1687.com/book/1hvgojp/)
 - [致富，文旅项目是穿越](https://www.chuangyi1687.com/book/1hvgojo/)
 - [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
-- [年代文漂亮女配高嫁日常](https://www.chuangyi1687.com/book/1hvgojm/)
 - [特殊的他[娱乐圈]](https://www.chuangyi1687.com/book/1hvgojl/)
 - [分手后前女友成了真千金[GB]](https://www.chuangyi1687.com/book/1hvgojk/)
 - [剑宗首席今天倒贴了吗](https://www.chuangyi1687.com/book/1hvgojj/)
@@ -79,13 +79,11 @@
 - [你老婆不要你了喔](https://www.chuangyi1687.com/book/1hvgdn3/)
 - [古代种田养娃日常](https://www.chuangyi1687.com/book/1hvg29s/)
 - [绝世美人也能当反派吗[快穿]](https://www.chuangyi1687.com/book/1hvg28g/)
-- [石库门一家人[八零]](https://www.chuangyi1687.com/book/1hvg212/)
+- [沪上弄堂里的小日子[八零]](https://www.chuangyi1687.com/book/1hvg212/)
 - [被反派暴君听到心声后[穿书]](https://www.chuangyi1687.com/book/1hvfkqb/)
 - [老公对不起](https://www.chuangyi1687.com/book/1hvfapp/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.chuangyi1687.com/book/1hvf6d2/)
-- [我剑](https://www.chuangyi1687.com/book/1hvf5pp/)
 - [穿Prada的亚裔超模](https://www.chuangyi1687.com/book/1hvf4c7/)
-- [寡妇与糙汉（穿越）](https://www.chuangyi1687.com/book/1hvf45o/)
 - [末日安全屋囤货求生](https://www.chuangyi1687.com/book/1hveto4/)
 - [病弱，但攻了顶1 [快穿]](https://www.chuangyi1687.com/book/1hvelo6/)
 - [你就是那个Beta？](https://www.chuangyi1687.com/book/1hveavv/)
@@ -98,11 +96,11 @@
 - [天幕剧透拆家幼崽是千古一帝](https://www.chuangyi1687.com/book/1hvdie4/)
 - [巨物致富：回乡开钓场](https://www.chuangyi1687.com/book/1hvdhup/)
 - [[三国]穿成名士，极限求生](https://www.chuangyi1687.com/book/1hvdfgu/)
+- [绝色美人模拟器](https://www.chuangyi1687.com/book/1hvdd5b/)
 - [不知蝴蝶远](https://www.chuangyi1687.com/book/1hvdcdl/)
 - [总有小动物来找我报案](https://www.chuangyi1687.com/book/1hvdbvu/)
 - [和心机大小姐成为室友后](https://www.chuangyi1687.com/book/1hvdbs5/)
 - [被退婚龙傲天强取豪夺了](https://www.chuangyi1687.com/book/1hvd8g3/)
-- [[足球]德布劳内养鼠日记](https://www.chuangyi1687.com/book/1hvd172/)
 - [前女友孩子三岁了](https://www.chuangyi1687.com/book/500qcg/)
 - [她是反派的背景板母亲](https://www.chuangyi1687.com/book/500o0c/)
 - [在大明当陪房](https://www.chuangyi1687.com/book/500lck/)
@@ -119,19 +117,16 @@
 - [死遁后冰山O怀了我的崽](https://www.chuangyi1687.com/book/500d7i/)
 - [成为养成系练习生后](https://www.chuangyi1687.com/book/500d4n/)
 - [美貌，不值一提［娱乐圈］](https://www.chuangyi1687.com/book/500d2v/)
-- [靠作死统一忍界！](https://www.chuangyi1687.com/book/5009g0/)
+- [太宗今天又哭了吗](https://www.chuangyi1687.com/book/5006hs/)
 - [乱浮生[破镜重圆]](https://www.chuangyi1687.com/book/5005s7/)
 - [那座本丸没有被讨厌](https://www.chuangyi1687.com/book/5004r3/)
-- [望海潮](https://www.chuangyi1687.com/book/500212/)
 - [全星际都想吃我做的菜](https://www.chuangyi1687.com/book/50007p/)
 - [北城婚逾](https://www.chuangyi1687.com/book/50002p/)
 - [救世主马甲扮演指南](https://www.chuangyi1687.com/book/4vvv58/)
 - [他们战斗我种田，他们贫穷我数钱](https://www.chuangyi1687.com/book/4vvuu5/)
 - [反派小姨靠直播卖货爆红了](https://www.chuangyi1687.com/book/4vvub8/)
 - [扮演古早人设？我吗？](https://www.chuangyi1687.com/book/4vvodm/)
-- [末世我有一棵树（无限）](https://www.chuangyi1687.com/book/4vvo9b/)
 - [每天都在阻止哥哥殉职[九零]](https://www.chuangyi1687.com/book/4vvo3n/)
-- [天幕曝我靠装昏君一统天下](https://www.chuangyi1687.com/book/4vvnts/)
 - [尚了眼盲公主后GL](https://www.chuangyi1687.com/book/4vvnoj/)
 - [商户女与大将军](https://www.chuangyi1687.com/book/4vvkif/)
 - [全本丸都对她图谋不轨](https://www.chuangyi1687.com/book/4vvkh3/)
@@ -162,7 +157,6 @@
 - [清澈女大的六零年代](https://www.chuangyi1687.com/book/fvr7g/)
 - [我真不是算命的！[香江]](https://www.chuangyi1687.com/book/fvr72/)
 - [[娱乐圈]过分美丽的她](https://www.chuangyi1687.com/book/fvr64/)
-- [[足球]米兰逆子成长记](https://www.chuangyi1687.com/book/fvqq5/)
 - [全民求生:从小木屋到魔法农场](https://www.chuangyi1687.com/book/fvqq1/)
 - [大瑛弟国](https://www.chuangyi1687.com/book/fvqk4/)
 - [我是唯一地上神国](https://www.chuangyi1687.com/book/fvqjn/)
@@ -173,12 +167,9 @@
 - [[诡秘之主]邪神误入塔罗会](https://www.chuangyi1687.com/book/fvq89/)
 - [如何扮演源氏重宝](https://www.chuangyi1687.com/book/fvq09/)
 - [猫猫也要养家糊口](https://www.chuangyi1687.com/book/fvq05/)
-- [据说我是神仙下凡](https://www.chuangyi1687.com/book/1j6do/)
-- [在古代上班的日子](https://www.chuangyi1687.com/book/1j69m/)
 - [海岛求生：生活玩家种田囤货](https://www.chuangyi1687.com/book/1j623/)
 - [带着签到系统当医生](https://www.chuangyi1687.com/book/1j613/)
 - [警察，但犯罪大师系统[刑侦]](https://www.chuangyi1687.com/book/1j5r0/)
-- [普通人，但魅魔体质](https://www.chuangyi1687.com/book/53ql/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1316/index.md)

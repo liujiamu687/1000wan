@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-08-17 03:15:44
+更新时间：2026-08-18 03:16:16
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -79,10 +79,9 @@
 - [你老婆不要你了喔](https://www.kmjike.com/book/4mlvaeg/)
 - [古代种田养娃日常](https://www.kmjike.com/book/4mluuuh/)
 - [绝世美人也能当反派吗[快穿]](https://www.kmjike.com/book/4mluuu8/)
-- [石库门一家人[八零]](https://www.kmjike.com/book/4mluumn/)
+- [沪上弄堂里的小日子[八零]](https://www.kmjike.com/book/4mluumn/)
 - [被反派暴君听到心声后[穿书]](https://www.kmjike.com/book/4mluhfo/)
 - [老公对不起](https://www.kmjike.com/book/4mlu7ga/)
-- [我剑](https://www.kmjike.com/book/4mltvm5/)
 - [穿Prada的亚裔超模](https://www.kmjike.com/book/4mlttu1/)
 - [末日安全屋囤货求生](https://www.kmjike.com/book/4mltpk0/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kmjike.com/book/4mltn76/)
@@ -97,13 +96,12 @@
 - [日化人生[科研]](https://www.kmjike.com/book/4mlsfat/)
 - [[三国]穿成名士，极限求生](https://www.kmjike.com/book/4mlsese/)
 - [巨物致富：回乡开钓场](https://www.kmjike.com/book/4mlsec5/)
+- [绝色美人模拟器](https://www.kmjike.com/book/4mlsb7u/)
 - [和心机大小姐成为室友后](https://www.kmjike.com/book/4mls8dh/)
 - [不知蝴蝶远](https://www.kmjike.com/book/4mls895/)
 - [总有小动物来找我报案](https://www.kmjike.com/book/4mls85q/)
 - [被退婚龙傲天强取豪夺了](https://www.kmjike.com/book/4mls4qc/)
-- [[足球]德布劳内养鼠日记](https://www.kmjike.com/book/4mlrv2q/)
 - [前女友孩子三岁了](https://www.kmjike.com/book/f28l86/)
-- [死遁的亡夫们都回来了](https://www.kmjike.com/book/f28k6o/)
 - [在大明当陪房](https://www.kmjike.com/book/f28jfk/)
 - [她是反派的背景板母亲](https://www.kmjike.com/book/f28jf2/)
 - [梦鱼记](https://www.kmjike.com/book/f28hfi/)
@@ -119,7 +117,6 @@
 - [美貌，不值一提［娱乐圈］](https://www.kmjike.com/book/f28auv/)
 - [死遁后冰山O怀了我的崽](https://www.kmjike.com/book/f28a5h/)
 - [成为养成系练习生后](https://www.kmjike.com/book/f28a2d/)
-- [靠作死统一忍界！](https://www.kmjike.com/book/f286e1/)
 - [乱浮生[破镜重圆]](https://www.kmjike.com/book/f2812q/)
 - [那座本丸没有被讨厌](https://www.kmjike.com/book/f280ff/)
 - [太宗今天又哭了吗](https://www.kmjike.com/book/f2805t/)
@@ -165,12 +162,10 @@
 - [[诡秘之主]邪神误入塔罗会](https://www.kmjike.com/book/1g70rm/)
 - [95美国贵族高中模拟](https://www.kmjike.com/book/1g70lu/)
 - [五十年代港城日常](https://www.kmjike.com/book/1g70l1/)
-- [据说我是神仙下凡](https://www.kmjike.com/book/1g70h2/)
 - [海岛求生：生活玩家种田囤货](https://www.kmjike.com/book/1g706u/)
 - [高门小婢](https://www.kmjike.com/book/1g706m/)
 - [猫猫也要养家糊口](https://www.kmjike.com/book/1g702a/)
 - [我是唯一地上神国](https://www.kmjike.com/book/4qad1/)
-- [在古代上班的日子](https://www.kmjike.com/book/4qa7t/)
 - [[娱乐圈]过分美丽的她](https://www.kmjike.com/book/4qa7b/)
 - [全民求生:从小木屋到魔法农场](https://www.kmjike.com/book/4qa3o/)
 - [清澈女大的六零年代](https://www.kmjike.com/book/4qa07/)

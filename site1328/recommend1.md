@@ -1,7 +1,7 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-08-17 03:16:04
+更新时间：2026-08-18 03:16:36
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
@@ -79,12 +79,11 @@
 - [你老婆不要你了喔](https://www.ksqinlida.com/book/1svdd9q/)
 - [绝世美人也能当反派吗[快穿]](https://www.ksqinlida.com/book/1svd1uq/)
 - [古代种田养娃日常](https://www.ksqinlida.com/book/1svd1rh/)
-- [石库门一家人[八零]](https://www.ksqinlida.com/book/1svd1ku/)
+- [沪上弄堂里的小日子[八零]](https://www.ksqinlida.com/book/1svd1ku/)
 - [被反派暴君听到心声后[穿书]](https://www.ksqinlida.com/book/1svckcr/)
 - [老公对不起](https://www.ksqinlida.com/book/1svcacb/)
 - [穿Prada的亚裔超模](https://www.ksqinlida.com/book/1svc72p/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ksqinlida.com/book/1svc2q3/)
-- [我剑](https://www.ksqinlida.com/book/1svbpk3/)
 - [末日安全屋囤货求生](https://www.ksqinlida.com/book/1svbn47/)
 - [病弱，但攻了顶1 [快穿]](https://www.ksqinlida.com/book/1svbl9v/)
 - [你就是那个Beta？](https://www.ksqinlida.com/book/1svbakn/)
@@ -97,14 +96,13 @@
 - [日化人生[科研]](https://www.ksqinlida.com/book/1svaj3k/)
 - [巨物致富：回乡开钓场](https://www.ksqinlida.com/book/1svahg7/)
 - [[三国]穿成名士，极限求生](https://www.ksqinlida.com/book/1svagvv/)
+- [绝色美人模拟器](https://www.ksqinlida.com/book/1svadle/)
 - [不知蝴蝶远](https://www.ksqinlida.com/book/1svaaf9/)
 - [和心机大小姐成为室友后](https://www.ksqinlida.com/book/1svaa0e/)
 - [总有小动物来找我报案](https://www.ksqinlida.com/book/1sva9jh/)
 - [被退婚龙傲天强取豪夺了](https://www.ksqinlida.com/book/1sva900/)
-- [[足球]德布劳内养鼠日记](https://www.ksqinlida.com/book/1sva2c7/)
 - [前女友孩子三岁了](https://www.ksqinlida.com/book/636stp/)
 - [她是反派的背景板母亲](https://www.ksqinlida.com/book/636qjs/)
-- [死遁的亡夫们都回来了](https://www.ksqinlida.com/book/636ot3/)
 - [在大明当陪房](https://www.ksqinlida.com/book/636ogq/)
 - [一个被穿越男占有的老实寡妇](https://www.ksqinlida.com/book/636mur/)
 - [天幕今天也在直播我搞基建](https://www.ksqinlida.com/book/636mhp/)
@@ -119,7 +117,6 @@
 - [谁知权臣是女郎](https://www.ksqinlida.com/book/636hh1/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.ksqinlida.com/book/636h6k/)
 - [成为养成系练习生后](https://www.ksqinlida.com/book/636h49/)
-- [靠作死统一忍界！](https://www.ksqinlida.com/book/636ekb/)
 - [那座本丸没有被讨厌](https://www.ksqinlida.com/book/6368v9/)
 - [乱浮生[破镜重圆]](https://www.ksqinlida.com/book/63672r/)
 - [太宗今天又哭了吗](https://www.ksqinlida.com/book/63671n/)
@@ -159,14 +156,12 @@
 - [[娱乐圈]过分美丽的她](https://www.ksqinlida.com/book/jgf3h/)
 - [卧底后被港岛大小姐缠上了](https://www.ksqinlida.com/book/jgf3e/)
 - [警察，但犯罪大师系统[刑侦]](https://www.ksqinlida.com/book/jgf0g/)
-- [在古代上班的日子](https://www.ksqinlida.com/book/jgetr/)
 - [全民求生:从小木屋到魔法农场](https://www.ksqinlida.com/book/jgerr/)
 - [科学主义魔法学院](https://www.ksqinlida.com/book/jgenn/)
 - [我真不是算命的！[香江]](https://www.ksqinlida.com/book/jgenb/)
 - [高门小婢](https://www.ksqinlida.com/book/jge1d/)
 - [幼儿园来了个林大厨[七零]](https://www.ksqinlida.com/book/jgdt1/)
 - [海岛求生：生活玩家种田囤货](https://www.ksqinlida.com/book/jgdn4/)
-- [据说我是神仙下凡](https://www.ksqinlida.com/book/jgdhq/)
 - [五十年代港城日常](https://www.ksqinlida.com/book/jgdgh/)
 - [穿到反派落魄时](https://www.ksqinlida.com/book/jgdga/)
 - [大瑛弟国](https://www.ksqinlida.com/book/jgdfo/)
