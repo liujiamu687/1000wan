@@ -1,13 +1,22 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-08-17 03:20:15
+更新时间：2026-08-18 03:21:03
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
 - [文学小说668](https://www.wenxue668.com/)
 
 ## 最新小说
+- [她是反派的背景板母亲](https://www.wenxue668.com/book/44f9g5q/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.wenxue668.com/book/44f9f13/)
+- [限制文不是这样的！](https://www.wenxue668.com/book/44f9es8/)
+- [纯爱宇智波基本恋爱法](https://www.wenxue668.com/book/44f9el8/)
+- [阴郁路人不想被喜欢](https://www.wenxue668.com/book/44f9ee6/)
+- [给控制狂龙傲天当老婆](https://www.wenxue668.com/book/44f9e93/)
+- [死遁后冰山O怀了我的崽](https://www.wenxue668.com/book/44f9dmt/)
+- [[希腊神话]蛇蛇神生美妙](https://www.wenxue668.com/book/44f9dga/)
+- [高嫁之后](https://www.wenxue668.com/book/44f9dbb/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1349/index.md)

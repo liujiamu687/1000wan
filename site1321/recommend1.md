@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-08-17 03:12:27
+更新时间：2026-08-18 03:12:55
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -79,13 +79,12 @@
 - [你老婆不要你了喔](https://www.duzhe888.com/book/2koee5v/)
 - [古代种田养娃日常](https://www.duzhe888.com/book/2kodogu/)
 - [绝世美人也能当反派吗[快穿]](https://www.duzhe888.com/book/2kodofm/)
-- [石库门一家人[八零]](https://www.duzhe888.com/book/2kodo59/)
+- [沪上弄堂里的小日子[八零]](https://www.duzhe888.com/book/2kodo59/)
 - [被反派暴君听到心声后[穿书]](https://www.duzhe888.com/book/2kodkgi/)
 - [老公对不起](https://www.duzhe888.com/book/2kodauo/)
 - [穿Prada的亚裔超模](https://www.duzhe888.com/book/2kod8nr/)
 - [末日安全屋囤货求生](https://www.duzhe888.com/book/2kod58a/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.duzhe888.com/book/2kocor0/)
-- [我剑](https://www.duzhe888.com/book/2koco62/)
 - [病弱，但攻了顶1 [快穿]](https://www.duzhe888.com/book/2kocl3a/)
 - [你就是那个Beta？](https://www.duzhe888.com/book/2koca3u/)
 - [御兽师，我打工养你啊](https://www.duzhe888.com/book/2koc8t2/)
@@ -98,15 +97,14 @@
 - [[三国]穿成名士，极限求生](https://www.duzhe888.com/book/2kobgvf/)
 - [巨物致富：回乡开钓场](https://www.duzhe888.com/book/2kobf0u/)
 - [总有小动物来找我报案](https://www.duzhe888.com/book/2kobduu/)
+- [绝色美人模拟器](https://www.duzhe888.com/book/2kobdo3/)
 - [和心机大小姐成为室友后](https://www.duzhe888.com/book/2kobcv4/)
 - [不知蝴蝶远](https://www.duzhe888.com/book/2kobagj/)
 - [被退婚龙傲天强取豪夺了](https://www.duzhe888.com/book/2koba58/)
-- [[足球]德布劳内养鼠日记](https://www.duzhe888.com/book/2kob2d4/)
 - [前女友孩子三岁了](https://www.duzhe888.com/book/8fa567/)
 - [她是反派的背景板母亲](https://www.duzhe888.com/book/8fa564/)
 - [在大明当陪房](https://www.duzhe888.com/book/8fa29m/)
 - [天幕今天也在直播我搞基建](https://www.duzhe888.com/book/8fa1gn/)
-- [死遁的亡夫们都回来了](https://www.duzhe888.com/book/8fa1d6/)
 - [一个被穿越男占有的老实寡妇](https://www.duzhe888.com/book/8fa0e7/)
 - [梦鱼记](https://www.duzhe888.com/book/8f9vu6/)
 - [新来的室友令人不爽](https://www.duzhe888.com/book/8f9vpa/)
@@ -119,7 +117,6 @@
 - [青梅她是诱系直女[娱乐圈]](https://www.duzhe888.com/book/8f9rj3/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.duzhe888.com/book/8f9pl7/)
 - [死遁后冰山O怀了我的崽](https://www.duzhe888.com/book/8f9p8k/)
-- [靠作死统一忍界！](https://www.duzhe888.com/book/8f9npg/)
 - [那座本丸没有被讨厌](https://www.duzhe888.com/book/8f9i0m/)
 - [太宗今天又哭了吗](https://www.duzhe888.com/book/8f9gu1/)
 - [乱浮生[破镜重圆]](https://www.duzhe888.com/book/8f9gnh/)
@@ -159,12 +156,10 @@
 - [[诡秘之主]邪神误入塔罗会](https://www.duzhe888.com/book/r3vrg/)
 - [大瑛弟国](https://www.duzhe888.com/book/r3vmo/)
 - [卧底后被港岛大小姐缠上了](https://www.duzhe888.com/book/r3vhn/)
-- [据说我是神仙下凡](https://www.duzhe888.com/book/r3vhl/)
 - [科学主义魔法学院](https://www.duzhe888.com/book/r3vgf/)
 - [我真不是算命的！[香江]](https://www.duzhe888.com/book/r3vf6/)
 - [警察，但犯罪大师系统[刑侦]](https://www.duzhe888.com/book/r3vem/)
 - [95美国贵族高中模拟](https://www.duzhe888.com/book/r3vc6/)
-- [在古代上班的日子](https://www.duzhe888.com/book/r3v92/)
 - [[娱乐圈]过分美丽的她](https://www.duzhe888.com/book/r3v0d/)
 - [带着签到系统当医生](https://www.duzhe888.com/book/r3uqe/)
 - [清澈女大的六零年代](https://www.duzhe888.com/book/r3uqd/)

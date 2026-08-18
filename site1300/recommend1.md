@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-08-17 03:16:44
+更新时间：2026-08-18 03:17:16
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
@@ -79,10 +79,9 @@
 - [你老婆不要你了喔](https://www.littlemissribbon.com/book/5asi7po/)
 - [绝世美人也能当反派吗[快穿]](https://www.littlemissribbon.com/book/5ashsjp/)
 - [古代种田养娃日常](https://www.littlemissribbon.com/book/5ashsab/)
-- [石库门一家人[八零]](https://www.littlemissribbon.com/book/5ashs6t/)
+- [沪上弄堂里的小日子[八零]](https://www.littlemissribbon.com/book/5ashs6t/)
 - [被反派暴君听到心声后[穿书]](https://www.littlemissribbon.com/book/5asheti/)
 - [老公对不起](https://www.littlemissribbon.com/book/5ash52d/)
-- [我剑](https://www.littlemissribbon.com/book/5asgu8q/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.littlemissribbon.com/book/5asgq6f/)
 - [末日安全屋囤货求生](https://www.littlemissribbon.com/book/5asglr0/)
 - [穿Prada的亚裔超模](https://www.littlemissribbon.com/book/5asgkeq/)
@@ -96,14 +95,13 @@
 - [日化人生[科研]](https://www.littlemissribbon.com/book/5asfff9/)
 - [天幕剧透拆家幼崽是千古一帝](https://www.littlemissribbon.com/book/5asfdm7/)
 - [巨物致富：回乡开钓场](https://www.littlemissribbon.com/book/5asfcme/)
+- [绝色美人模拟器](https://www.littlemissribbon.com/book/5asf83e/)
 - [[三国]穿成名士，极限求生](https://www.littlemissribbon.com/book/5asf7pi/)
 - [总有小动物来找我报案](https://www.littlemissribbon.com/book/5asf68u/)
 - [和心机大小姐成为室友后](https://www.littlemissribbon.com/book/5asf4d1/)
 - [不知蝴蝶远](https://www.littlemissribbon.com/book/5asf2uj/)
 - [被退婚龙傲天强取豪夺了](https://www.littlemissribbon.com/book/5asf1jl/)
-- [[足球]德布劳内养鼠日记](https://www.littlemissribbon.com/book/5aset45/)
 - [前女友孩子三岁了](https://www.littlemissribbon.com/book/h2to3u/)
-- [死遁的亡夫们都回来了](https://www.littlemissribbon.com/book/h2tnc8/)
 - [她是反派的背景板母亲](https://www.littlemissribbon.com/book/h2tlr0/)
 - [在大明当陪房](https://www.littlemissribbon.com/book/h2tl2d/)
 - [梦鱼记](https://www.littlemissribbon.com/book/h2tja4/)
@@ -119,7 +117,6 @@
 - [死遁后冰山O怀了我的崽](https://www.littlemissribbon.com/book/h2tdv5/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.littlemissribbon.com/book/h2tcsl/)
 - [谁知权臣是女郎](https://www.littlemissribbon.com/book/h2tcjj/)
-- [靠作死统一忍界！](https://www.littlemissribbon.com/book/h2t9tg/)
 - [乱浮生[破镜重圆]](https://www.littlemissribbon.com/book/h2t57i/)
 - [那座本丸没有被讨厌](https://www.littlemissribbon.com/book/h2t4a9/)
 - [太宗今天又哭了吗](https://www.littlemissribbon.com/book/h2t3ue/)
@@ -157,10 +154,8 @@
 - [五十年代港城日常](https://www.littlemissribbon.com/book/1mluj7/)
 - [如何扮演源氏重宝](https://www.littlemissribbon.com/book/1mluei/)
 - [穿到反派落魄时](https://www.littlemissribbon.com/book/1mlu57/)
-- [据说我是神仙下凡](https://www.littlemissribbon.com/book/1mltrn/)
 - [大瑛弟国](https://www.littlemissribbon.com/book/1mltqc/)
 - [科学主义魔法学院](https://www.littlemissribbon.com/book/1mltnh/)
-- [在古代上班的日子](https://www.littlemissribbon.com/book/1mltn0/)
 - [卧底后被港岛大小姐缠上了](https://www.littlemissribbon.com/book/1mltlu/)
 - [猫猫也要养家糊口](https://www.littlemissribbon.com/book/1mltic/)
 - [我有一座安全城](https://www.littlemissribbon.com/book/1mltgd/)

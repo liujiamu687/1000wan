@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-08-17 03:15:11
+更新时间：2026-08-18 03:15:40
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -78,11 +78,10 @@
 - [[咒回]绝不会喜欢五条君的！](https://www.kanshu666.com/book/8jv7gpi/)
 - [你老婆不要你了喔](https://www.kanshu666.com/book/8jv7770/)
 - [绝世美人也能当反派吗[快穿]](https://www.kanshu666.com/book/8jv6s1j/)
-- [石库门一家人[八零]](https://www.kanshu666.com/book/8jv6rn9/)
+- [沪上弄堂里的小日子[八零]](https://www.kanshu666.com/book/8jv6rn9/)
 - [古代种田养娃日常](https://www.kanshu666.com/book/8jv6rmu/)
 - [被反派暴君听到心声后[穿书]](https://www.kanshu666.com/book/8jv6e80/)
 - [老公对不起](https://www.kanshu666.com/book/8jv64hl/)
-- [我剑](https://www.kanshu666.com/book/8jv634l/)
 - [穿Prada的亚裔超模](https://www.kanshu666.com/book/8jv5n60/)
 - [末日安全屋囤货求生](https://www.kanshu666.com/book/8jv5mji/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kanshu666.com/book/8jv5l9q/)
@@ -97,14 +96,13 @@
 - [天幕剧透拆家幼崽是千古一帝](https://www.kanshu666.com/book/8jv4c6j/)
 - [巨物致富：回乡开钓场](https://www.kanshu666.com/book/8jv4bqq/)
 - [[三国]穿成名士，极限求生](https://www.kanshu666.com/book/8jv494b/)
+- [绝色美人模拟器](https://www.kanshu666.com/book/8jv46ku/)
 - [和心机大小姐成为室友后](https://www.kanshu666.com/book/8jv43sr/)
 - [总有小动物来找我报案](https://www.kanshu666.com/book/8jv43ku/)
 - [被退婚龙傲天强取豪夺了](https://www.kanshu666.com/book/8jv42s6/)
 - [不知蝴蝶远](https://www.kanshu666.com/book/8jv420q/)
-- [[足球]德布劳内养鼠日记](https://www.kanshu666.com/book/8jv3r33/)
 - [前女友孩子三岁了](https://www.kanshu666.com/book/rj6a7u/)
 - [她是反派的背景板母亲](https://www.kanshu666.com/book/rj66ej/)
-- [死遁的亡夫们都回来了](https://www.kanshu666.com/book/rj6613/)
 - [在大明当陪房](https://www.kanshu666.com/book/rj65k9/)
 - [天幕今天也在直播我搞基建](https://www.kanshu666.com/book/rj62k2/)
 - [梦鱼记](https://www.kanshu666.com/book/rj624g/)
@@ -119,7 +117,6 @@
 - [谁知权臣是女郎](https://www.kanshu666.com/book/rj5t0m/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.kanshu666.com/book/rj5spq/)
 - [美貌，不值一提［娱乐圈］](https://www.kanshu666.com/book/rj5sku/)
-- [靠作死统一忍界！](https://www.kanshu666.com/book/rj5qtv/)
 - [那座本丸没有被讨厌](https://www.kanshu666.com/book/rj5li9/)
 - [太宗今天又哭了吗](https://www.kanshu666.com/book/rj5k2n/)
 - [乱浮生[破镜重圆]](https://www.kanshu666.com/book/rj5jar/)
@@ -162,9 +159,7 @@
 - [猫猫也要养家糊口](https://www.kanshu666.com/book/2o9vo7/)
 - [[娱乐圈]过分美丽的她](https://www.kanshu666.com/book/2o9vnb/)
 - [高门小婢](https://www.kanshu666.com/book/2o9vfk/)
-- [在古代上班的日子](https://www.kanshu666.com/book/2o9vcr/)
 - [五十年代港城日常](https://www.kanshu666.com/book/2o9v0t/)
-- [据说我是神仙下凡](https://www.kanshu666.com/book/2o9uqv/)
 - [警察，但犯罪大师系统[刑侦]](https://www.kanshu666.com/book/2o9ulj/)
 - [海岛求生：生活玩家种田囤货](https://www.kanshu666.com/book/8qjmi/)
 - [卧底后被港岛大小姐缠上了](https://www.kanshu666.com/book/8qjk3/)

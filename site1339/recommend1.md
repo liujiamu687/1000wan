@@ -1,13 +1,14 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-08-16 03:16:09
+更新时间：2026-08-18 03:21:06
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
 - [三哥小说网](https://www.wkntmcb.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.wkntmcb.com/book/48j12li/)
 - [动物世界恋爱指北[快穿]](https://www.wkntmcb.com/book/48j0d75/)
 - [不知蝴蝶远](https://www.wkntmcb.com/book/48j0d40/)
 - [折辱男主后女配死遁了](https://www.wkntmcb.com/book/48j0d0o/)
@@ -25,7 +26,7 @@
 - [小社恐在荒星种草致富](https://www.wkntmcb.com/book/48j0c0u/)
 - [带球跑后崽捡垃圾养我](https://www.wkntmcb.com/book/48j0c0f/)
 - [[三国]穿成名士，极限求生](https://www.wkntmcb.com/book/48j0bvm/)
-- [年代文漂亮女配高嫁日常](https://www.wkntmcb.com/book/48j0buh/)
+- [绝色美人模拟器](https://www.wkntmcb.com/book/48j0bua/)
 - [分手后前女友成了真千金[GB]](https://www.wkntmcb.com/book/48j0bsk/)
 - [信息素制导](https://www.wkntmcb.com/book/48j0bse/)
 - [虚荣直男被迫万人迷](https://www.wkntmcb.com/book/48j0bpp/)
@@ -83,7 +84,6 @@
 - [在大明当陪房](https://www.wkntmcb.com/book/48j06nl/)
 - [风月债](https://www.wkntmcb.com/book/48j0537/)
 - [[希腊神话]蛇蛇神生美妙](https://www.wkntmcb.com/book/48j03i0/)
-- [[足球]德布劳内养鼠日记](https://www.wkntmcb.com/book/48j02d6/)
 - [科学主义魔法学院](https://www.wkntmcb.com/book/48j010f/)
 - [梦鱼记](https://www.wkntmcb.com/book/48ivsgd/)
 - [死遁后冰山O怀了我的崽](https://www.wkntmcb.com/book/48ivrkr/)
@@ -95,9 +95,8 @@
 - [青梅她是诱系直女[娱乐圈]](https://www.wkntmcb.com/book/48ivlnn/)
 - [欸？我不是玩家吗？！](https://www.wkntmcb.com/book/48ivj09/)
 - [美貌，不值一提［娱乐圈］](https://www.wkntmcb.com/book/48ivikc/)
-- [靠作死统一忍界！](https://www.wkntmcb.com/book/48ivepb/)
 - [乱浮生[破镜重圆]](https://www.wkntmcb.com/book/48ivb1o/)
-- [望海潮](https://www.wkntmcb.com/book/48iv9s0/)
+- [太宗今天又哭了吗](https://www.wkntmcb.com/book/48iv9r0/)
 - [高嫁之后](https://www.wkntmcb.com/book/48iv7r6/)
 - [北城婚逾](https://www.wkntmcb.com/book/48iv700/)
 - [救世主马甲扮演指南](https://www.wkntmcb.com/book/48iv4io/)
@@ -110,7 +109,6 @@
 - [尚了眼盲公主后GL](https://www.wkntmcb.com/book/48iuujv/)
 - [扮演古早人设？我吗？](https://www.wkntmcb.com/book/48iusa9/)
 - [我是多男修罗场文的恶毒女配](https://www.wkntmcb.com/book/48iur6g/)
-- [末世我有一棵树（无限）](https://www.wkntmcb.com/book/48iuqqa/)
 - [纯爱宇智波基本恋爱法](https://www.wkntmcb.com/book/48iupto/)
 - [每天都在阻止哥哥殉职[九零]](https://www.wkntmcb.com/book/48iuovf/)
 - [仁王君今天也要打网球](https://www.wkntmcb.com/book/48iuoe3/)
@@ -133,15 +131,13 @@
 - [予你之名[GB]](https://www.wkntmcb.com/book/48iuasi/)
 - [雄虫他穿回来了](https://www.wkntmcb.com/book/48iuao0/)
 - [末日安全屋囤货求生](https://www.wkntmcb.com/book/48iu8hd/)
-- [石库门一家人[八零]](https://www.wkntmcb.com/book/48iu8f5/)
+- [沪上弄堂里的小日子[八零]](https://www.wkntmcb.com/book/48iu8f5/)
 - [致富，文旅项目是穿越](https://www.wkntmcb.com/book/48iu3j0/)
 - [刑部的小衙门](https://www.wkntmcb.com/book/48iu2g4/)
 - [错把魔尊当感化对象](https://www.wkntmcb.com/book/48itpua/)
 - [日化人生[科研]](https://www.wkntmcb.com/book/48istsq/)
-- [普通人，但魅魔体质](https://www.wkntmcb.com/book/48istsa/)
 - [大瑛弟国](https://www.wkntmcb.com/book/48istno/)
 - [警察，但犯罪大师系统[刑侦]](https://www.wkntmcb.com/book/48istkf/)
-- [天幕曝我靠装昏君一统天下](https://www.wkntmcb.com/book/48istjl/)
 - [我是唯一地上神国](https://www.wkntmcb.com/book/48isth6/)
 - [成为养成系练习生后](https://www.wkntmcb.com/book/48istdp/)
 - [天幕今天也在直播我搞基建](https://www.wkntmcb.com/book/48istb0/)
@@ -158,7 +154,6 @@
 - [我有一座安全城](https://www.wkntmcb.com/book/48issd7/)
 - [幼儿园来了个林大厨[七零]](https://www.wkntmcb.com/book/48iss5q/)
 - [她是反派的背景板母亲](https://www.wkntmcb.com/book/48iss4o/)
-- [寡妇与糙汉（穿越）](https://www.wkntmcb.com/book/48iss42/)
 - [在惊悚片里当灵媒[综恐]](https://www.wkntmcb.com/book/48iss2j/)
 - [猫猫也要养家糊口](https://www.wkntmcb.com/book/48isruo/)
 - [卧底后被港岛大小姐缠上了](https://www.wkntmcb.com/book/48isrtr/)
@@ -166,17 +161,13 @@
 - [[娱乐圈]过分美丽的她](https://www.wkntmcb.com/book/48isrsf/)
 - [海岛求生：生活玩家种田囤货](https://www.wkntmcb.com/book/48isrs8/)
 - [全民求生:从小木屋到魔法农场](https://www.wkntmcb.com/book/48isrp5/)
-- [[足球]米兰逆子成长记](https://www.wkntmcb.com/book/48isrid/)
 - [带着签到系统当医生](https://www.wkntmcb.com/book/48isrfr/)
 - [你老婆不要你了喔](https://www.wkntmcb.com/book/48isra5/)
 - [古代种田养娃日常](https://www.wkntmcb.com/book/48isr85/)
 - [[足球]恋与内斯塔](https://www.wkntmcb.com/book/48isr6l/)
-- [我剑](https://www.wkntmcb.com/book/48isr50/)
 - [五十年代港城日常](https://www.wkntmcb.com/book/48isqtt/)
 - [穿到反派落魄时](https://www.wkntmcb.com/book/48isqpv/)
 - [穿成炮灰后我封神了［快穿］](https://www.wkntmcb.com/book/48isqoi/)
-- [据说我是神仙下凡](https://www.wkntmcb.com/book/48isqnn/)
-- [在古代上班的日子](https://www.wkntmcb.com/book/48isqng/)
 - [[咒回]绝不会喜欢五条君的！](https://www.wkntmcb.com/book/48isqmt/)
 - [如何扮演源氏重宝](https://www.wkntmcb.com/book/48isqm5/)
 ## 相关内容
