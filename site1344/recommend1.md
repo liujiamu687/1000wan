@@ -1,7 +1,7 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-08-17 03:13:00
+更新时间：2026-08-18 03:13:28
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
@@ -22,6 +22,7 @@
 - [前女友孩子三岁了](https://www.guoweiyulin.com/book/360o0im/)
 - [[诡秘之主]邪神误入塔罗会](https://www.guoweiyulin.com/book/360o0hk/)
 - [女扮男装科举和皇帝撞脸了！](https://www.guoweiyulin.com/book/360o0ff/)
+- [绝色美人模拟器](https://www.guoweiyulin.com/book/360o0ep/)
 - [不做通房](https://www.guoweiyulin.com/book/360o08k/)
 - [受气包A被清冷美人欺负了](https://www.guoweiyulin.com/book/360o05c/)
 - [动物世界恋爱指北[快穿]](https://www.guoweiyulin.com/book/360nvvs/)
@@ -82,7 +83,6 @@
 - [美强惨男配的白月光[快穿]](https://www.guoweiyulin.com/book/360nr2t/)
 - [在大明当陪房](https://www.guoweiyulin.com/book/360nqk6/)
 - [风月债](https://www.guoweiyulin.com/book/360nojv/)
-- [[足球]德布劳内养鼠日记](https://www.guoweiyulin.com/book/360nmaf/)
 - [[希腊神话]蛇蛇神生美妙](https://www.guoweiyulin.com/book/360nma7/)
 - [科学主义魔法学院](https://www.guoweiyulin.com/book/360nj74/)
 - [梦鱼记](https://www.guoweiyulin.com/book/360nhbs/)
@@ -95,7 +95,6 @@
 - [青梅她是诱系直女[娱乐圈]](https://www.guoweiyulin.com/book/360n8sh/)
 - [欸？我不是玩家吗？！](https://www.guoweiyulin.com/book/360n725/)
 - [美貌，不值一提［娱乐圈］](https://www.guoweiyulin.com/book/360n4ug/)
-- [靠作死统一忍界！](https://www.guoweiyulin.com/book/360n3bm/)
 - [乱浮生[破镜重圆]](https://www.guoweiyulin.com/book/360muj0/)
 - [高嫁之后](https://www.guoweiyulin.com/book/360mte1/)
 - [太宗今天又哭了吗](https://www.guoweiyulin.com/book/360mr2g/)
@@ -132,8 +131,7 @@
 - [魔物堆里的人类幼崽](https://www.guoweiyulin.com/book/360luop/)
 - [高三生不可以玩诡异游戏！](https://www.guoweiyulin.com/book/360ltmn/)
 - [末日安全屋囤货求生](https://www.guoweiyulin.com/book/360lsse/)
-- [死遁的亡夫们都回来了](https://www.guoweiyulin.com/book/360lrvo/)
-- [石库门一家人[八零]](https://www.guoweiyulin.com/book/360lref/)
+- [沪上弄堂里的小日子[八零]](https://www.guoweiyulin.com/book/360lref/)
 - [刑部的小衙门](https://www.guoweiyulin.com/book/360lms5/)
 - [致富，文旅项目是穿越](https://www.guoweiyulin.com/book/360lkli/)
 - [错把魔尊当感化对象](https://www.guoweiyulin.com/book/360ldgf/)
@@ -148,7 +146,6 @@
 - [穿到反派落魄时](https://www.guoweiyulin.com/book/360kgta/)
 - [在惊悚片里当灵媒[综恐]](https://www.guoweiyulin.com/book/360kgs7/)
 - [大瑛弟国](https://www.guoweiyulin.com/book/360kgs5/)
-- [在古代上班的日子](https://www.guoweiyulin.com/book/360kgqr/)
 - [全民求生:从小木屋到魔法农场](https://www.guoweiyulin.com/book/360kgpk/)
 - [清澈女大的六零年代](https://www.guoweiyulin.com/book/360kgo1/)
 - [穿成炮灰后我封神了［快穿］](https://www.guoweiyulin.com/book/360kgli/)
@@ -166,9 +163,7 @@
 - [你们蜘蛛巢怎么这样？](https://www.guoweiyulin.com/book/360kfek/)
 - [95美国贵族高中模拟](https://www.guoweiyulin.com/book/360kfeb/)
 - [带着签到系统当医生](https://www.guoweiyulin.com/book/360kf9c/)
-- [据说我是神仙下凡](https://www.guoweiyulin.com/book/360kf7h/)
 - [猫猫也要养家糊口](https://www.guoweiyulin.com/book/360kf78/)
-- [我剑](https://www.guoweiyulin.com/book/360kf6n/)
 - [御兽师，我打工养你啊](https://www.guoweiyulin.com/book/360ken9/)
 - [你就是那个Beta？](https://www.guoweiyulin.com/book/360kemv/)
 - [日化人生[科研]](https://www.guoweiyulin.com/book/360kejm/)

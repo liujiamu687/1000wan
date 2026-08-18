@@ -1,7 +1,7 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-08-17 03:12:47
+更新时间：2026-08-18 03:13:15
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
@@ -53,6 +53,7 @@
 - [动物世界恋爱指北[快穿]](https://www.fshxjd.com/book/74i1j0v/)
 - [直男咒术师的限制级游戏](https://www.fshxjd.com/book/74i1j0m/)
 - [不做通房](https://www.fshxjd.com/book/74i1j0e/)
+- [绝色美人模拟器](https://www.fshxjd.com/book/74i1j0a/)
 - [在四爷府里吃吃喝喝的日常（清穿）](https://www.fshxjd.com/book/74i1ivf/)
 - [[诡秘之主]邪神误入塔罗会](https://www.fshxjd.com/book/74i1iu1/)
 - [京秋婚约](https://www.fshxjd.com/book/74i1itd/)
@@ -83,7 +84,6 @@
 - [风月债](https://www.fshxjd.com/book/74i1ehh/)
 - [在大明当陪房](https://www.fshxjd.com/book/74i1ddl/)
 - [[希腊神话]蛇蛇神生美妙](https://www.fshxjd.com/book/74i1b0m/)
-- [[足球]德布劳内养鼠日记](https://www.fshxjd.com/book/74i19f1/)
 - [科学主义魔法学院](https://www.fshxjd.com/book/74i17lb/)
 - [梦鱼记](https://www.fshxjd.com/book/74i14af/)
 - [死遁后冰山O怀了我的崽](https://www.fshxjd.com/book/74i12s6/)
@@ -95,7 +95,6 @@
 - [欸？我不是玩家吗？！](https://www.fshxjd.com/book/74i0rls/)
 - [青梅她是诱系直女[娱乐圈]](https://www.fshxjd.com/book/74i0r6e/)
 - [美貌，不值一提［娱乐圈］](https://www.fshxjd.com/book/74i0pi8/)
-- [靠作死统一忍界！](https://www.fshxjd.com/book/74i0noh/)
 - [乱浮生[破镜重圆]](https://www.fshxjd.com/book/74i0kkc/)
 - [太宗今天又哭了吗](https://www.fshxjd.com/book/74i0gqn/)
 - [高嫁之后](https://www.fshxjd.com/book/74i0frt/)
@@ -131,9 +130,8 @@
 - [雄虫他穿回来了](https://www.fshxjd.com/book/74hvith/)
 - [玉轸（古代ABO）](https://www.fshxjd.com/book/74hvij5/)
 - [冷脸萌今天也想谋杀亲夫](https://www.fshxjd.com/book/74hvhsf/)
-- [死遁的亡夫们都回来了](https://www.fshxjd.com/book/74hvh08/)
 - [末日安全屋囤货求生](https://www.fshxjd.com/book/74hvg7h/)
-- [石库门一家人[八零]](https://www.fshxjd.com/book/74hvfb1/)
+- [沪上弄堂里的小日子[八零]](https://www.fshxjd.com/book/74hvfb1/)
 - [致富，文旅项目是穿越](https://www.fshxjd.com/book/74hvajt/)
 - [刑部的小衙门](https://www.fshxjd.com/book/74hv9gd/)
 - [错把魔尊当感化对象](https://www.fshxjd.com/book/74hv1q0/)
@@ -154,11 +152,9 @@
 - [五十年代港城日常](https://www.fshxjd.com/book/74hu4g9/)
 - [[足球]恋与内斯塔](https://www.fshxjd.com/book/74hu49i/)
 - [海岛求生：生活玩家种田囤货](https://www.fshxjd.com/book/74hu48i/)
-- [在古代上班的日子](https://www.fshxjd.com/book/74hu45v/)
 - [日化人生[科研]](https://www.fshxjd.com/book/74hu43o/)
 - [95美国贵族高中模拟](https://www.fshxjd.com/book/74hu41o/)
 - [我有一座安全城](https://www.fshxjd.com/book/74hu3rs/)
-- [据说我是神仙下凡](https://www.fshxjd.com/book/74hu3oa/)
 - [老公对不起](https://www.fshxjd.com/book/74hu3no/)
 - [警察，但犯罪大师系统[刑侦]](https://www.fshxjd.com/book/74hu3nk/)
 - [六零之成了卷王的妹妹](https://www.fshxjd.com/book/74hu3kj/)
@@ -171,7 +167,6 @@
 - [如何扮演源氏重宝](https://www.fshxjd.com/book/74hu3ci/)
 - [高门小婢](https://www.fshxjd.com/book/74hu37m/)
 - [你们蜘蛛巢怎么这样？](https://www.fshxjd.com/book/74hu36c/)
-- [我剑](https://www.fshxjd.com/book/74hu34b/)
 - [清澈女大的六零年代](https://www.fshxjd.com/book/74hu2vm/)
 - [在惊悚片里当灵媒[综恐]](https://www.fshxjd.com/book/74hu2td/)
 - [猫猫也要养家糊口](https://www.fshxjd.com/book/74hu2k0/)

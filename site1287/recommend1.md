@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-17 03:13:56
+更新时间：2026-08-18 03:14:24
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -79,12 +79,11 @@
 - [你老婆不要你了喔](https://www.hzciic.com/book/1sjv6hv/)
 - [绝世美人也能当反派吗[快穿]](https://www.hzciic.com/book/1sjuh2r/)
 - [古代种田养娃日常](https://www.hzciic.com/book/1sjuh0f/)
-- [石库门一家人[八零]](https://www.hzciic.com/book/1sjugmk/)
+- [沪上弄堂里的小日子[八零]](https://www.hzciic.com/book/1sjugmk/)
 - [被反派暴君听到心声后[穿书]](https://www.hzciic.com/book/1sjuctl/)
 - [老公对不起](https://www.hzciic.com/book/1sju39t/)
 - [末日安全屋囤货求生](https://www.hzciic.com/book/1sju0nh/)
 - [穿Prada的亚裔超模](https://www.hzciic.com/book/1sjttr0/)
-- [我剑](https://www.hzciic.com/book/1sjtro5/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hzciic.com/book/1sjtojr/)
 - [病弱，但攻了顶1 [快穿]](https://www.hzciic.com/book/1sjtdep/)
 - [你就是那个Beta？](https://www.hzciic.com/book/1sjt2oq/)
@@ -97,16 +96,15 @@
 - [日化人生[科研]](https://www.hzciic.com/book/1sjsbst/)
 - [巨物致富：回乡开钓场](https://www.hzciic.com/book/1sjs8qc/)
 - [[三国]穿成名士，极限求生](https://www.hzciic.com/book/1sjs8l4/)
+- [绝色美人模拟器](https://www.hzciic.com/book/1sjs5g4/)
 - [总有小动物来找我报案](https://www.hzciic.com/book/1sjs5f7/)
 - [和心机大小姐成为室友后](https://www.hzciic.com/book/1sjs4oe/)
 - [不知蝴蝶远](https://www.hzciic.com/book/1sjs2k4/)
 - [被退婚龙傲天强取豪夺了](https://www.hzciic.com/book/1sjs1n8/)
-- [[足球]德布劳内养鼠日记](https://www.hzciic.com/book/1sjrque/)
 - [前女友孩子三岁了](https://www.hzciic.com/book/6227tm/)
 - [她是反派的背景板母亲](https://www.hzciic.com/book/6227qh/)
 - [在大明当陪房](https://www.hzciic.com/book/6225o0/)
 - [天幕今天也在直播我搞基建](https://www.hzciic.com/book/62247i/)
-- [死遁的亡夫们都回来了](https://www.hzciic.com/book/622463/)
 - [[诡秘之主]好巧啊你也是愚者信徒？](https://www.hzciic.com/book/62222o/)
 - [梦鱼记](https://www.hzciic.com/book/6221qe/)
 - [一个被穿越男占有的老实寡妇](https://www.hzciic.com/book/6221gl/)
@@ -119,7 +117,6 @@
 - [谁知权臣是女郎](https://www.hzciic.com/book/621u5b/)
 - [死遁后冰山O怀了我的崽](https://www.hzciic.com/book/621t9r/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.hzciic.com/book/621rl5/)
-- [靠作死统一忍界！](https://www.hzciic.com/book/621pke/)
 - [乱浮生[破镜重圆]](https://www.hzciic.com/book/621k5v/)
 - [那座本丸没有被讨厌](https://www.hzciic.com/book/621j7h/)
 - [太宗今天又哭了吗](https://www.hzciic.com/book/621hv7/)
@@ -157,7 +154,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.hzciic.com/book/jcpmc/)
 - [高门小婢](https://www.hzciic.com/book/jcpgf/)
 - [清澈女大的六零年代](https://www.hzciic.com/book/jcpbe/)
-- [在古代上班的日子](https://www.hzciic.com/book/jcp9q/)
 - [95美国贵族高中模拟](https://www.hzciic.com/book/jcp4v/)
 - [我真不是算命的！[香江]](https://www.hzciic.com/book/jcp0e/)
 - [警察，但犯罪大师系统[刑侦]](https://www.hzciic.com/book/jcoqc/)
@@ -167,7 +163,6 @@
 - [带着签到系统当医生](https://www.hzciic.com/book/1u38r/)
 - [海岛求生：生活玩家种田囤货](https://www.hzciic.com/book/1u388/)
 - [大瑛弟国](https://www.hzciic.com/book/1u365/)
-- [据说我是神仙下凡](https://www.hzciic.com/book/1u2vs/)
 - [[娱乐圈]过分美丽的她](https://www.hzciic.com/book/1u2vm/)
 - [卧底后被港岛大小姐缠上了](https://www.hzciic.com/book/1u2ri/)
 - [如何扮演源氏重宝](https://www.hzciic.com/book/1u2r5/)

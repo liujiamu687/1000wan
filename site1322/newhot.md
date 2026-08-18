@@ -1,7 +1,7 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-08-16 03:15:49
+更新时间：2026-08-18 03:20:43
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
@@ -9,42 +9,44 @@
 
 ## 最新小说
 - [高嫁之后](https://www.wenxue521.com/book/93ols8d/)
+- [限制文不是这样的！](https://www.wenxue521.com/book/93ols8b/)
+- [给控制狂龙傲天当老婆](https://www.wenxue521.com/book/93ols74/)
 - [纯爱宇智波基本恋爱法](https://www.wenxue521.com/book/93ols72/)
+- [阴郁路人不想被喜欢](https://www.wenxue521.com/book/93ols6h/)
 - [[希腊神话]蛇蛇神生美妙](https://www.wenxue521.com/book/93ols5n/)
-- [你老婆不要你了喔](https://www.wenxue521.com/book/93olh8r/)
 - [如何嫁给当朝首辅](https://www.wenxue521.com/book/93oj3kk/)
 - [我的老公是暴君](https://www.wenxue521.com/book/93oit7a/)
 - [穿到法国，但超越者公务员](https://www.wenxue521.com/book/93oidn6/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.wenxue521.com/book/93oic0v/)
-- [不知蝴蝶远](https://www.wenxue521.com/book/93oibkn/)
 - [全球进化，而我保持不变](https://www.wenxue521.com/book/93oi4jc/)
 - [她是反派的背景板母亲](https://www.wenxue521.com/book/t5nldn/)
+- [若清晨所见之蓝](https://www.wenxue521.com/book/t5njod/)
 - [沈助理又在隐藏他的超能力](https://www.wenxue521.com/book/t5nj0r/)
-- [天幕今天也在直播我搞基建](https://www.wenxue521.com/book/t5ngeu/)
+- [误标记隔壁阿姨O之后](https://www.wenxue521.com/book/t5nd2e/)
 - [死遁后冰山O怀了我的崽](https://www.wenxue521.com/book/t5naoc/)
+- [[足球]可以来利物浦踢后腰吗](https://www.wenxue521.com/book/t5n8iv/)
 - [可是你也砂锅我](https://www.wenxue521.com/book/t5n8g2/)
-- [闺蜜就不能是妻子吗](https://www.wenxue521.com/book/t5n691/)
 - [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.wenxue521.com/book/t5n2tp/)
-- [和冰山上司隐婚生崽了](https://www.wenxue521.com/book/t5n2dq/)
-- [被迫臣服冰山顶级大小姐O](https://www.wenxue521.com/book/t5mukd/)
+- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.wenxue521.com/book/t5ms70/)
+- [宇智波的遗产](https://www.wenxue521.com/book/t5mrs6/)
+- [阴阳师也可以打网球](https://www.wenxue521.com/book/t5mp77/)
 - [我与龙傲天寿命共享](https://www.wenxue521.com/book/t5mo2l/)
 - [你也没死？](https://www.wenxue521.com/book/t5mmtf/)
 - [[秦]公子扶苏](https://www.wenxue521.com/book/t5mmki/)
 - [小丧尸也要被迫求生吗](https://www.wenxue521.com/book/t5mlij/)
 - [老婆是恋爱脑女配](https://www.wenxue521.com/book/t5mkrm/)
+- [死遁后成了忍界白月光？](https://www.wenxue521.com/book/t5mjh9/)
 - [这谁的沙雕二次元心声！](https://www.wenxue521.com/book/t5mjaj/)
 - [老公是松散生命体](https://www.wenxue521.com/book/t5mit0/)
+- [东北土豪娇养小甜心后](https://www.wenxue521.com/book/t5mere/)
 - [在魔法世界屯田争霸](https://www.wenxue521.com/book/t5me0n/)
-- [假日恋悠悠](https://www.wenxue521.com/book/t5mdal/)
-- [黄月光她始乱终弃](https://www.wenxue521.com/book/t5mbbq/)
-- [多梦你一会儿](https://www.wenxue521.com/book/t5m9h9/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wenxue521.com/book/t5m8s5/)
-- [误入反派培养直播后](https://www.wenxue521.com/book/t5m6s8/)
-- [拯救世界从扮演反派开始](https://www.wenxue521.com/book/t5m4p2/)
+- [[足球]罗蜜第一志愿](https://www.wenxue521.com/book/t5m68n/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.wenxue521.com/book/t5m454/)
 - [八零恶毒后妈杀疯了](https://www.wenxue521.com/book/t5m1ph/)
 - [在民俗惊悚片被诸神庇护](https://www.wenxue521.com/book/t5ls19/)
-- [贝利珠](https://www.wenxue521.com/book/9ap39/)
+- [哥你不能不要我](https://www.wenxue521.com/book/t5lihi/)
+- [被奇犽告白以后](https://www.wenxue521.com/book/2tboe0/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1322/index.md)

@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-08-17 03:17:04
+更新时间：2026-08-18 03:17:36
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -79,12 +79,11 @@
 - [你老婆不要你了喔](https://www.longjiangstone.com/book/34apfl/)
 - [绝世美人也能当反派吗[快穿]](https://www.longjiangstone.com/book/34aegc/)
 - [古代种田养娃日常](https://www.longjiangstone.com/book/34ae5u/)
-- [石库门一家人[八零]](https://www.longjiangstone.com/book/34ae5a/)
+- [沪上弄堂里的小日子[八零]](https://www.longjiangstone.com/book/34ae5a/)
 - [被反派暴君听到心声后[穿书]](https://www.longjiangstone.com/book/34a0mn/)
 - [老公对不起](https://www.longjiangstone.com/book/349vpi/)
 - [穿Prada的亚裔超模](https://www.longjiangstone.com/book/349hep/)
 - [末日安全屋囤货求生](https://www.longjiangstone.com/book/3498oi/)
-- [我剑](https://www.longjiangstone.com/book/34963q/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.longjiangstone.com/book/34941d/)
 - [病弱，但攻了顶1 [快穿]](https://www.longjiangstone.com/book/34920g/)
 - [你就是那个Beta？](https://www.longjiangstone.com/book/348n83/)
@@ -97,15 +96,14 @@
 - [天幕剧透拆家幼崽是千古一帝](https://www.longjiangstone.com/book/347uso/)
 - [巨物致富：回乡开钓场](https://www.longjiangstone.com/book/347tjt/)
 - [[三国]穿成名士，极限求生](https://www.longjiangstone.com/book/347pr3/)
+- [绝色美人模拟器](https://www.longjiangstone.com/book/347ok3/)
 - [总有小动物来找我报案](https://www.longjiangstone.com/book/347n80/)
 - [和心机大小姐成为室友后](https://www.longjiangstone.com/book/347n0p/)
 - [不知蝴蝶远](https://www.longjiangstone.com/book/347ll0/)
 - [被退婚龙傲天强取豪夺了](https://www.longjiangstone.com/book/347iu7/)
-- [[足球]德布劳内养鼠日记](https://www.longjiangstone.com/book/347f11/)
 - [前女友孩子三岁了](https://www.longjiangstone.com/book/a3ed0/)
 - [她是反派的背景板母亲](https://www.longjiangstone.com/book/a3c91/)
 - [在大明当陪房](https://www.longjiangstone.com/book/a3bu4/)
-- [死遁的亡夫们都回来了](https://www.longjiangstone.com/book/a3a8d/)
 - [梦鱼记](https://www.longjiangstone.com/book/a39af/)
 - [天幕今天也在直播我搞基建](https://www.longjiangstone.com/book/a38ek/)
 - [一个被穿越男占有的老实寡妇](https://www.longjiangstone.com/book/a36ti/)
@@ -119,7 +117,6 @@
 - [成为养成系练习生后](https://www.longjiangstone.com/book/a33dg/)
 - [美貌，不值一提［娱乐圈］](https://www.longjiangstone.com/book/a32rf/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.longjiangstone.com/book/a3211/)
-- [靠作死统一忍界！](https://www.longjiangstone.com/book/a30qo/)
 - [乱浮生[破镜重圆]](https://www.longjiangstone.com/book/a2r3a/)
 - [那座本丸没有被讨厌](https://www.longjiangstone.com/book/a2pho/)
 - [太宗今天又哭了吗](https://www.longjiangstone.com/book/a2p5h/)
@@ -165,7 +162,6 @@
 - [[诡秘之主]邪神误入塔罗会](https://www.longjiangstone.com/book/103fo/)
 - [大瑛弟国](https://www.longjiangstone.com/book/103bp/)
 - [带着签到系统当医生](https://www.longjiangstone.com/book/1038m/)
-- [在古代上班的日子](https://www.longjiangstone.com/book/102qv/)
 - [猫猫也要养家糊口](https://www.longjiangstone.com/book/102lt/)
 - [我真不是算命的！[香江]](https://www.longjiangstone.com/book/102l8/)
 - [穿到反派落魄时](https://www.longjiangstone.com/book/102id/)
@@ -174,7 +170,6 @@
 - [五十年代港城日常](https://www.longjiangstone.com/book/375a/)
 - [卧底后被港岛大小姐缠上了](https://www.longjiangstone.com/book/36nn/)
 - [幼儿园来了个林大厨[七零]](https://www.longjiangstone.com/book/36ks/)
-- [据说我是神仙下凡](https://www.longjiangstone.com/book/aaf/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1284/index.md)

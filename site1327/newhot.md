@@ -1,7 +1,7 @@
 
 # 顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-08-17 03:14:16
+更新时间：2026-08-18 03:14:44
 
 顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
@@ -10,7 +10,9 @@
 ## 最新小说
 - [高嫁之后](https://www.jjfbaijia.com/book/8hhvkj9/)
 - [纯爱宇智波基本恋爱法](https://www.jjfbaijia.com/book/8hhvkj1/)
+- [阴郁路人不想被喜欢](https://www.jjfbaijia.com/book/8hhvkib/)
 - [[希腊神话]蛇蛇神生美妙](https://www.jjfbaijia.com/book/8hhvkhq/)
+- [给控制狂龙傲天当老婆](https://www.jjfbaijia.com/book/8hhvkhf/)
 - [限制文不是这样的！](https://www.jjfbaijia.com/book/8hhvkfl/)
 - [如何嫁给当朝首辅](https://www.jjfbaijia.com/book/8hhsskt/)
 - [我的老公是暴君](https://www.jjfbaijia.com/book/8hhsnji/)
@@ -18,27 +20,33 @@
 - [穿到法国，但超越者公务员](https://www.jjfbaijia.com/book/8hhs4pd/)
 - [全球进化，而我保持不变](https://www.jjfbaijia.com/book/rbf3e4/)
 - [她是反派的背景板母亲](https://www.jjfbaijia.com/book/rbf1nd/)
-- [新来的室友令人不爽](https://www.jjfbaijia.com/book/rbepju/)
+- [沈助理又在隐藏他的超能力](https://www.jjfbaijia.com/book/rbeva7/)
+- [若清晨所见之蓝](https://www.jjfbaijia.com/book/rbetob/)
 - [误标记隔壁阿姨O之后](https://www.jjfbaijia.com/book/rbeojq/)
-- [在立海大玩网球模拟器](https://www.jjfbaijia.com/book/rbej3a/)
-- [[足球]最佳前锋](https://www.jjfbaijia.com/book/rbedim/)
-- [养了一个废太子](https://www.jjfbaijia.com/book/rbeabv/)
-- [被迫臣服冰山顶级大小姐O](https://www.jjfbaijia.com/book/rbe80p/)
-- [咕哒，菜菜，捞捞](https://www.jjfbaijia.com/book/rbe7d5/)
+- [死遁后冰山O怀了我的崽](https://www.jjfbaijia.com/book/rbeod5/)
+- [可是你也砂锅我](https://www.jjfbaijia.com/book/rbekuq/)
+- [[足球]可以来利物浦踢后腰吗](https://www.jjfbaijia.com/book/rbejms/)
+- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.jjfbaijia.com/book/rbedss/)
+- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.jjfbaijia.com/book/rbead7/)
+- [宇智波的遗产](https://www.jjfbaijia.com/book/rbe9j8/)
+- [阴阳师也可以打网球](https://www.jjfbaijia.com/book/rbe6kl/)
 - [我与龙傲天寿命共享](https://www.jjfbaijia.com/book/rbe49v/)
+- [你也没死？](https://www.jjfbaijia.com/book/rbe3ct/)
+- [这谁的沙雕二次元心声！](https://www.jjfbaijia.com/book/rbe160/)
 - [小丧尸也要被迫求生吗](https://www.jjfbaijia.com/book/rbe0ps/)
 - [[秦]公子扶苏](https://www.jjfbaijia.com/book/rbe0mv/)
 - [死遁后成了忍界白月光？](https://www.jjfbaijia.com/book/rbe04n/)
+- [老婆是恋爱脑女配](https://www.jjfbaijia.com/book/rbdv9l/)
 - [老公是松散生命体](https://www.jjfbaijia.com/book/rbdut6/)
+- [东北土豪娇养小甜心后](https://www.jjfbaijia.com/book/rbdq8k/)
 - [在魔法世界屯田争霸](https://www.jjfbaijia.com/book/rbdps2/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.jjfbaijia.com/book/rbdlj4/)
-- [误入反派培养直播后](https://www.jjfbaijia.com/book/rbdkvo/)
-- [多梦你一会儿](https://www.jjfbaijia.com/book/rbdjeh/)
+- [[足球]罗蜜第一志愿](https://www.jjfbaijia.com/book/rbdhkb/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.jjfbaijia.com/book/rbdh12/)
-- [拯救世界从扮演反派开始](https://www.jjfbaijia.com/book/rbdg78/)
 - [八零恶毒后妈杀疯了](https://www.jjfbaijia.com/book/rbdec6/)
 - [在民俗惊悚片被诸神庇护](https://www.jjfbaijia.com/book/rbd648/)
-- [贝利珠](https://www.jjfbaijia.com/book/2nh9cg/)
+- [哥你不能不要我](https://www.jjfbaijia.com/book/rbcuie/)
+- [被奇犽告白以后](https://www.jjfbaijia.com/book/2nh9qn/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1327/index.md)
