@@ -1,13 +1,22 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-08-17 03:15:10
+更新时间：2026-08-18 03:15:39
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
 - [看剧文学网](https://www.kanju788.com/)
 
 ## 最新小说
+- [死遁后冰山O怀了我的崽](https://www.kanju788.com/book/tnvd53/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.kanju788.com/book/tnvcg0/)
+- [纯爱宇智波基本恋爱法](https://www.kanju788.com/book/tnvcdv/)
+- [[希腊神话]蛇蛇神生美妙](https://www.kanju788.com/book/tnvbvf/)
+- [她是反派的背景板母亲](https://www.kanju788.com/book/tnvbtu/)
+- [阴郁路人不想被喜欢](https://www.kanju788.com/book/tnvbms/)
+- [给控制狂龙傲天当老婆](https://www.kanju788.com/book/tnvbge/)
+- [高嫁之后](https://www.kanju788.com/book/tnvbep/)
+- [限制文不是这样的！](https://www.kanju788.com/book/tnvb96/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1348/index.md)

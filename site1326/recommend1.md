@@ -1,7 +1,7 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-08-17 03:23:12
+更新时间：2026-08-18 03:24:18
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
@@ -79,10 +79,9 @@
 - [你老婆不要你了喔](https://www.znenghs.com/book/5n2jtre/)
 - [绝世美人也能当反派吗[快穿]](https://www.znenghs.com/book/5n2j7pg/)
 - [古代种田养娃日常](https://www.znenghs.com/book/5n2j7mo/)
-- [石库门一家人[八零]](https://www.znenghs.com/book/5n2j7d5/)
+- [沪上弄堂里的小日子[八零]](https://www.znenghs.com/book/5n2j7d5/)
 - [被反派暴君听到心声后[穿书]](https://www.znenghs.com/book/5n2iqsa/)
 - [老公对不起](https://www.znenghs.com/book/5n2iqa9/)
-- [我剑](https://www.znenghs.com/book/5n2imjg/)
 - [穿Prada的亚裔超模](https://www.znenghs.com/book/5n2im2r/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.znenghs.com/book/5n2iie5/)
 - [末日安全屋囤货求生](https://www.znenghs.com/book/5n2iboh/)
@@ -97,14 +96,13 @@
 - [天幕剧透拆家幼崽是千古一帝](https://www.znenghs.com/book/5n2h58g/)
 - [巨物致富：回乡开钓场](https://www.znenghs.com/book/5n2h3jv/)
 - [[三国]穿成名士，极限求生](https://www.znenghs.com/book/5n2gv0d/)
+- [绝色美人模拟器](https://www.znenghs.com/book/5n2gseb/)
 - [和心机大小姐成为室友后](https://www.znenghs.com/book/5n2gs3t/)
 - [总有小动物来找我报案](https://www.znenghs.com/book/5n2grkb/)
 - [不知蝴蝶远](https://www.znenghs.com/book/5n2gqtm/)
 - [被退婚龙傲天强取豪夺了](https://www.znenghs.com/book/5n2gplp/)
-- [[足球]德布劳内养鼠日记](https://www.znenghs.com/book/5n2gjku/)
 - [前女友孩子三岁了](https://www.znenghs.com/book/i9tuhh/)
 - [她是反派的背景板母亲](https://www.znenghs.com/book/i9ttj4/)
-- [死遁的亡夫们都回来了](https://www.znenghs.com/book/i9ttde/)
 - [在大明当陪房](https://www.znenghs.com/book/i9tpu7/)
 - [天幕今天也在直播我搞基建](https://www.znenghs.com/book/i9tooc/)
 - [梦鱼记](https://www.znenghs.com/book/i9toc3/)
@@ -118,7 +116,6 @@
 - [青梅她是诱系直女[娱乐圈]](https://www.znenghs.com/book/i9tj33/)
 - [美貌，不值一提［娱乐圈］](https://www.znenghs.com/book/i9tin5/)
 - [谁知权臣是女郎](https://www.znenghs.com/book/i9tii9/)
-- [靠作死统一忍界！](https://www.znenghs.com/book/i9tidk/)
 - [死遁后冰山O怀了我的崽](https://www.znenghs.com/book/i9tgrj/)
 - [乱浮生[破镜重圆]](https://www.znenghs.com/book/i9tbeb/)
 - [那座本丸没有被讨厌](https://www.znenghs.com/book/i9t7ih/)
@@ -160,11 +157,9 @@
 - [[诡秘之主]邪神误入塔罗会](https://www.znenghs.com/book/1qip1t/)
 - [海岛求生：生活玩家种田囤货](https://www.znenghs.com/book/1qioop/)
 - [科学主义魔法学院](https://www.znenghs.com/book/1qiokv/)
-- [在古代上班的日子](https://www.znenghs.com/book/1qiokb/)
 - [带着签到系统当医生](https://www.znenghs.com/book/1qioi0/)
 - [高门小婢](https://www.znenghs.com/book/1qio1t/)
 - [穿到反派落魄时](https://www.znenghs.com/book/1qinha/)
-- [据说我是神仙下凡](https://www.znenghs.com/book/1qineo/)
 - [大瑛弟国](https://www.znenghs.com/book/1qine0/)
 - [猫猫也要养家糊口](https://www.znenghs.com/book/1qinbe/)
 - [警察，但犯罪大师系统[刑侦]](https://www.znenghs.com/book/1qin70/)

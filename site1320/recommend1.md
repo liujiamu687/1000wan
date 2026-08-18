@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-08-17 03:13:13
+更新时间：2026-08-18 03:13:41
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -79,11 +79,10 @@
 - [你老婆不要你了喔](https://www.gushi1314.com/book/8m9jj1h/)
 - [古代种田养娃日常](https://www.gushi1314.com/book/8m9itj9/)
 - [绝世美人也能当反派吗[快穿]](https://www.gushi1314.com/book/8m9ith4/)
-- [石库门一家人[八零]](https://www.gushi1314.com/book/8m9it8l/)
+- [沪上弄堂里的小日子[八零]](https://www.gushi1314.com/book/8m9it8l/)
 - [被反派暴君听到心声后[穿书]](https://www.gushi1314.com/book/8m9ipfo/)
 - [老公对不起](https://www.gushi1314.com/book/8m9ifpo/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi1314.com/book/8m9icev/)
-- [我剑](https://www.gushi1314.com/book/8m9i9lf/)
 - [穿Prada的亚裔超模](https://www.gushi1314.com/book/8m9i7f0/)
 - [末日安全屋囤货求生](https://www.gushi1314.com/book/8m9i6sd/)
 - [病弱，但攻了顶1 [快穿]](https://www.gushi1314.com/book/8m9hq0d/)
@@ -97,16 +96,15 @@
 - [日化人生[科研]](https://www.gushi1314.com/book/8m9gnpg/)
 - [[三国]穿成名士，极限求生](https://www.gushi1314.com/book/8m9gmfv/)
 - [巨物致富：回乡开钓场](https://www.gushi1314.com/book/8m9gjre/)
+- [绝色美人模拟器](https://www.gushi1314.com/book/8m9gios/)
 - [和心机大小姐成为室友后](https://www.gushi1314.com/book/8m9gif4/)
 - [总有小动物来找我报案](https://www.gushi1314.com/book/8m9ggst/)
 - [被退婚龙傲天强取豪夺了](https://www.gushi1314.com/book/8m9gfqu/)
 - [不知蝴蝶远](https://www.gushi1314.com/book/8m9gfdq/)
-- [[足球]德布劳内养鼠日记](https://www.gushi1314.com/book/8m9g6fa/)
 - [她是反派的背景板母亲](https://www.gushi1314.com/book/rqk9q7/)
 - [前女友孩子三岁了](https://www.gushi1314.com/book/rqk7nq/)
 - [天幕今天也在直播我搞基建](https://www.gushi1314.com/book/rqk68q/)
 - [在大明当陪房](https://www.gushi1314.com/book/rqk5ss/)
-- [死遁的亡夫们都回来了](https://www.gushi1314.com/book/rqk59m/)
 - [[诡秘之主]好巧啊你也是愚者信徒？](https://www.gushi1314.com/book/rqk41c/)
 - [一个被穿越男占有的老实寡妇](https://www.gushi1314.com/book/rqk402/)
 - [风月债](https://www.gushi1314.com/book/rqk3pt/)
@@ -119,7 +117,6 @@
 - [美貌，不值一提［娱乐圈］](https://www.gushi1314.com/book/rqjvao/)
 - [死遁后冰山O怀了我的崽](https://www.gushi1314.com/book/rqjupm/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.gushi1314.com/book/rqjsaj/)
-- [靠作死统一忍界！](https://www.gushi1314.com/book/rqjrj1/)
 - [那座本丸没有被讨厌](https://www.gushi1314.com/book/rqjlad/)
 - [太宗今天又哭了吗](https://www.gushi1314.com/book/rqjjkn/)
 - [乱浮生[破镜重圆]](https://www.gushi1314.com/book/rqjjek/)
@@ -168,11 +165,9 @@
 - [卧底后被港岛大小姐缠上了](https://www.gushi1314.com/book/2p1omd/)
 - [带着签到系统当医生](https://www.gushi1314.com/book/2p1okv/)
 - [如何扮演源氏重宝](https://www.gushi1314.com/book/8svvf/)
-- [在古代上班的日子](https://www.gushi1314.com/book/8svr6/)
 - [高门小婢](https://www.gushi1314.com/book/8svoa/)
 - [警察，但犯罪大师系统[刑侦]](https://www.gushi1314.com/book/8svnf/)
 - [我是唯一地上神国](https://www.gushi1314.com/book/8svmv/)
-- [据说我是神仙下凡](https://www.gushi1314.com/book/8svle/)
 - [幼儿园来了个林大厨[七零]](https://www.gushi1314.com/book/8svb0/)
 - [清澈女大的六零年代](https://www.gushi1314.com/book/sfvp/)
 ## 相关内容

@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-08-17 03:21:51
+更新时间：2026-08-18 03:22:57
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -79,12 +79,11 @@
 - [你老婆不要你了喔](https://www.yuedu687.com/book/2bu57n1/)
 - [绝世美人也能当反派吗[快穿]](https://www.yuedu687.com/book/2bu4su9/)
 - [古代种田养娃日常](https://www.yuedu687.com/book/2bu4snc/)
-- [石库门一家人[八零]](https://www.yuedu687.com/book/2bu4skm/)
+- [沪上弄堂里的小日子[八零]](https://www.yuedu687.com/book/2bu4skm/)
 - [被反派暴君听到心声后[穿书]](https://www.yuedu687.com/book/2bu4fa0/)
 - [老公对不起](https://www.yuedu687.com/book/2bu4e87/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yuedu687.com/book/2bu40v1/)
 - [末日安全屋囤货求生](https://www.yuedu687.com/book/2bu3q2j/)
-- [我剑](https://www.yuedu687.com/book/2bu3nts/)
 - [穿Prada的亚裔超模](https://www.yuedu687.com/book/2bu3nbr/)
 - [病弱，但攻了顶1 [快穿]](https://www.yuedu687.com/book/2bu3gjh/)
 - [你就是那个Beta？](https://www.yuedu687.com/book/2bu35hu/)
@@ -97,14 +96,13 @@
 - [日化人生[科研]](https://www.yuedu687.com/book/2bu2dbg/)
 - [巨物致富：回乡开钓场](https://www.yuedu687.com/book/2bu2cms/)
 - [[三国]穿成名士，极限求生](https://www.yuedu687.com/book/2bu29gh/)
+- [绝色美人模拟器](https://www.yuedu687.com/book/2bu277b/)
 - [总有小动物来找我报案](https://www.yuedu687.com/book/2bu268q/)
 - [和心机大小姐成为室友后](https://www.yuedu687.com/book/2bu256u/)
 - [被退婚龙傲天强取豪夺了](https://www.yuedu687.com/book/2bu23ve/)
 - [不知蝴蝶远](https://www.yuedu687.com/book/2bu21fd/)
-- [[足球]德布劳内养鼠日记](https://www.yuedu687.com/book/2bu1t9o/)
 - [前女友孩子三岁了](https://www.yuedu687.com/book/7j2shd/)
 - [在大明当陪房](https://www.yuedu687.com/book/7j2r7e/)
-- [死遁的亡夫们都回来了](https://www.yuedu687.com/book/7j2q2o/)
 - [她是反派的背景板母亲](https://www.yuedu687.com/book/7j2p1d/)
 - [梦鱼记](https://www.yuedu687.com/book/7j2oiq/)
 - [天幕今天也在直播我搞基建](https://www.yuedu687.com/book/7j2mcv/)
@@ -119,7 +117,6 @@
 - [死遁后冰山O怀了我的崽](https://www.yuedu687.com/book/7j2gdp/)
 - [成为养成系练习生后](https://www.yuedu687.com/book/7j2g9a/)
 - [谁知权臣是女郎](https://www.yuedu687.com/book/7j2fte/)
-- [靠作死统一忍界！](https://www.yuedu687.com/book/7j2dpg/)
 - [乱浮生[破镜重圆]](https://www.yuedu687.com/book/7j27te/)
 - [那座本丸没有被讨厌](https://www.yuedu687.com/book/7j26if/)
 - [太宗今天又哭了吗](https://www.yuedu687.com/book/7j2685/)
@@ -164,14 +161,12 @@
 - [高门小婢](https://www.yuedu687.com/book/o9kti/)
 - [海岛求生：生活玩家种田囤货](https://www.yuedu687.com/book/o9kof/)
 - [大瑛弟国](https://www.yuedu687.com/book/o9kft/)
-- [据说我是神仙下凡](https://www.yuedu687.com/book/o9ke4/)
 - [卧底后被港岛大小姐缠上了](https://www.yuedu687.com/book/o9kde/)
 - [我是唯一地上神国](https://www.yuedu687.com/book/o9k11/)
 - [[诡秘之主]邪神误入塔罗会](https://www.yuedu687.com/book/o9jvg/)
 - [我真不是算命的！[香江]](https://www.yuedu687.com/book/o9jt4/)
 - [95美国贵族高中模拟](https://www.yuedu687.com/book/o9js1/)
 - [科学主义魔法学院](https://www.yuedu687.com/book/o9jqc/)
-- [在古代上班的日子](https://www.yuedu687.com/book/2dp4h/)
 - [我有一座安全城](https://www.yuedu687.com/book/2dp1j/)
 - [带着签到系统当医生](https://www.yuedu687.com/book/2dorf/)
 - [幼儿园来了个林大厨[七零]](https://www.yuedu687.com/book/2dok7/)
