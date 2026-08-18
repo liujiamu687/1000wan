@@ -1,13 +1,14 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-16 03:05:53
+更新时间：2026-08-18 03:10:30
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
 - [思路客](https://www.968577.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.968577.com/book/1b28m8c/)
 - [千禧年，拆迁分了十栋楼！](https://www.968577.com/book/1b28m88/)
 - [在金龙之上](https://www.968577.com/book/1b28m86/)
 - [假少爷的犟种夫郎](https://www.968577.com/book/1b28m81/)
@@ -69,7 +70,6 @@
 - [受气包A被清冷美人欺负了](https://www.968577.com/book/1b28m3b/)
 - [直男咒术师的限制级游戏](https://www.968577.com/book/1b28m3a/)
 - [美强惨男配的白月光[快穿]](https://www.968577.com/book/1b28m39/)
-- [年代文漂亮女配高嫁日常](https://www.968577.com/book/1b28m38/)
 - [阴郁路人不想被喜欢](https://www.968577.com/book/1b28m37/)
 - [你们蜘蛛巢怎么这样？](https://www.968577.com/book/1b28ksg/)
 - [[足球]恋与内斯塔](https://www.968577.com/book/1b28kru/)
@@ -79,12 +79,10 @@
 - [你老婆不要你了喔](https://www.968577.com/book/1b28b9i/)
 - [绝世美人也能当反派吗[快穿]](https://www.968577.com/book/1b27vje/)
 - [古代种田养娃日常](https://www.968577.com/book/1b27vim/)
-- [石库门一家人[八零]](https://www.968577.com/book/1b27v8u/)
+- [沪上弄堂里的小日子[八零]](https://www.968577.com/book/1b27v8u/)
 - [被反派暴君听到心声后[穿书]](https://www.968577.com/book/1b27ic5/)
 - [老公对不起](https://www.968577.com/book/1b2784b/)
 - [穿Prada的亚裔超模](https://www.968577.com/book/1b2761f/)
-- [寡妇与糙汉（穿越）](https://www.968577.com/book/1b272s1/)
-- [我剑](https://www.968577.com/book/1b272ns/)
 - [末日安全屋囤货求生](https://www.968577.com/book/1b26s06/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.968577.com/book/1b26ofq/)
 - [病弱，但攻了顶1 [快穿]](https://www.968577.com/book/1b26j7e/)
@@ -99,10 +97,10 @@
 - [[三国]穿成名士，极限求生](https://www.968577.com/book/1b25enn/)
 - [巨物致富：回乡开钓场](https://www.968577.com/book/1b25ef5/)
 - [和心机大小姐成为室友后](https://www.968577.com/book/1b25cpk/)
+- [绝色美人模拟器](https://www.968577.com/book/1b25a7k/)
 - [总有小动物来找我报案](https://www.968577.com/book/1b257t2/)
 - [不知蝴蝶远](https://www.968577.com/book/1b257st/)
 - [被退婚龙傲天强取豪夺了](https://www.968577.com/book/1b256lu/)
-- [[足球]德布劳内养鼠日记](https://www.968577.com/book/1b250jr/)
 - [前女友孩子三岁了](https://www.968577.com/book/49spu5/)
 - [天幕今天也在直播我搞基建](https://www.968577.com/book/49sn8e/)
 - [在大明当陪房](https://www.968577.com/book/49sn7a/)
@@ -119,17 +117,14 @@
 - [美貌，不值一提［娱乐圈］](https://www.968577.com/book/49se5v/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.968577.com/book/49sdm0/)
 - [谁知权臣是女郎](https://www.968577.com/book/49sd1i/)
-- [靠作死统一忍界！](https://www.968577.com/book/49sama/)
+- [太宗今天又哭了吗](https://www.968577.com/book/49s5v6/)
 - [乱浮生[破镜重圆]](https://www.968577.com/book/49s3fm/)
 - [那座本丸没有被讨厌](https://www.968577.com/book/49s384/)
-- [望海潮](https://www.968577.com/book/49s282/)
 - [北城婚逾](https://www.968577.com/book/49rv1v/)
 - [全星际都想吃我做的菜](https://www.968577.com/book/49rv1m/)
 - [反派小姨靠直播卖货爆红了](https://www.968577.com/book/49rukt/)
 - [救世主马甲扮演指南](https://www.968577.com/book/49rtn6/)
 - [他们战斗我种田，他们贫穷我数钱](https://www.968577.com/book/49rtma/)
-- [末世我有一棵树（无限）](https://www.968577.com/book/49rps7/)
-- [天幕曝我靠装昏君一统天下](https://www.968577.com/book/49rpih/)
 - [每天都在阻止哥哥殉职[九零]](https://www.968577.com/book/49rpep/)
 - [扮演古早人设？我吗？](https://www.968577.com/book/49rotf/)
 - [尚了眼盲公主后GL](https://www.968577.com/book/49rns9/)
@@ -156,14 +151,11 @@
 - [高三生不可以玩诡异游戏！](https://www.968577.com/book/49qpbd/)
 - [错把魔尊当感化对象](https://www.968577.com/book/49qnu8/)
 - [穿到反派落魄时](https://www.968577.com/book/dp2e3/)
-- [在古代上班的日子](https://www.968577.com/book/dp299/)
 - [我有一座安全城](https://www.968577.com/book/dp27s/)
 - [卧底后被港岛大小姐缠上了](https://www.968577.com/book/dp27o/)
 - [带着签到系统当医生](https://www.968577.com/book/dp27n/)
 - [[诡秘之主]邪神误入塔罗会](https://www.968577.com/book/dp1qb/)
-- [普通人，但魅魔体质](https://www.968577.com/book/dp1gg/)
 - [高门小婢](https://www.968577.com/book/dp1dp/)
-- [据说我是神仙下凡](https://www.968577.com/book/dp1a8/)
 - [大瑛弟国](https://www.968577.com/book/dp187/)
 - [五十年代港城日常](https://www.968577.com/book/dp0un/)
 - [警察，但犯罪大师系统[刑侦]](https://www.968577.com/book/dp0q9/)
@@ -177,7 +169,6 @@
 - [幼儿园来了个林大厨[七零]](https://www.968577.com/book/1c3pg/)
 - [[娱乐圈]过分美丽的她](https://www.968577.com/book/1c3oi/)
 - [如何扮演源氏重宝](https://www.968577.com/book/1c3nk/)
-- [[足球]米兰逆子成长记](https://www.968577.com/book/1c3lu/)
 - [全民求生:从小木屋到魔法农场](https://www.968577.com/book/1c3d6/)
 ## 相关内容
 - [README](/README.md)

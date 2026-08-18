@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-17 03:21:10
+更新时间：2026-08-18 03:22:04
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
@@ -78,14 +78,13 @@
 - [六零之成了卷王的妹妹](https://www.xqwz8bk.com/book/1igm1fe/)
 - [你老婆不要你了喔](https://www.xqwz8bk.com/book/1iglnsd/)
 - [绝世美人也能当反派吗[快穿]](https://www.xqwz8bk.com/book/1igld45/)
-- [石库门一家人[八零]](https://www.xqwz8bk.com/book/1igld0n/)
+- [沪上弄堂里的小日子[八零]](https://www.xqwz8bk.com/book/1igld0n/)
 - [古代种田养娃日常](https://www.xqwz8bk.com/book/1iglcvl/)
 - [被反派暴君听到心声后[穿书]](https://www.xqwz8bk.com/book/1igkvlh/)
 - [老公对不起](https://www.xqwz8bk.com/book/1igkule/)
 - [末日安全屋囤货求生](https://www.xqwz8bk.com/book/1igkir2/)
 - [穿Prada的亚裔超模](https://www.xqwz8bk.com/book/1igki6a/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xqwz8bk.com/book/1igk3t9/)
-- [我剑](https://www.xqwz8bk.com/book/1igk2rs/)
 - [病弱，但攻了顶1 [快穿]](https://www.xqwz8bk.com/book/1igk120/)
 - [你就是那个Beta？](https://www.xqwz8bk.com/book/1igjlvq/)
 - [御兽师，我打工养你啊](https://www.xqwz8bk.com/book/1igjkj0/)
@@ -98,12 +97,11 @@
 - [巨物致富：回乡开钓场](https://www.xqwz8bk.com/book/1igisge/)
 - [[三国]穿成名士，极限求生](https://www.xqwz8bk.com/book/1iginrl/)
 - [和心机大小姐成为室友后](https://www.xqwz8bk.com/book/1igin7k/)
+- [绝色美人模拟器](https://www.xqwz8bk.com/book/1igimat/)
 - [总有小动物来找我报案](https://www.xqwz8bk.com/book/1igilqo/)
 - [被退婚龙傲天强取豪夺了](https://www.xqwz8bk.com/book/1igiiqa/)
 - [不知蝴蝶远](https://www.xqwz8bk.com/book/1igii79/)
-- [[足球]德布劳内养鼠日记](https://www.xqwz8bk.com/book/1igic80/)
 - [前女友孩子三岁了](https://www.xqwz8bk.com/book/51nogk/)
-- [死遁的亡夫们都回来了](https://www.xqwz8bk.com/book/51nmoc/)
 - [她是反派的背景板母亲](https://www.xqwz8bk.com/book/51nk6q/)
 - [梦鱼记](https://www.xqwz8bk.com/book/51nild/)
 - [天幕今天也在直播我搞基建](https://www.xqwz8bk.com/book/51nido/)
@@ -119,7 +117,6 @@
 - [美貌，不值一提［娱乐圈］](https://www.xqwz8bk.com/book/51nc1b/)
 - [谁知权臣是女郎](https://www.xqwz8bk.com/book/51nbh3/)
 - [青梅她是诱系直女[娱乐圈]](https://www.xqwz8bk.com/book/51nbgv/)
-- [靠作死统一忍界！](https://www.xqwz8bk.com/book/51n8vp/)
 - [乱浮生[破镜重圆]](https://www.xqwz8bk.com/book/51n2ja/)
 - [太宗今天又哭了吗](https://www.xqwz8bk.com/book/51n20t/)
 - [那座本丸没有被讨厌](https://www.xqwz8bk.com/book/51mvmc/)
@@ -157,11 +154,9 @@
 - [全民求生:从小木屋到魔法农场](https://www.xqwz8bk.com/book/g5blo/)
 - [科学主义魔法学院](https://www.xqwz8bk.com/book/g5bki/)
 - [幼儿园来了个林大厨[七零]](https://www.xqwz8bk.com/book/g5bkd/)
-- [据说我是神仙下凡](https://www.xqwz8bk.com/book/g5bhv/)
 - [大瑛弟国](https://www.xqwz8bk.com/book/g5bh4/)
 - [清澈女大的六零年代](https://www.xqwz8bk.com/book/g5bam/)
 - [[娱乐圈]过分美丽的她](https://www.xqwz8bk.com/book/g5b94/)
-- [在古代上班的日子](https://www.xqwz8bk.com/book/g5b7d/)
 - [高门小婢](https://www.xqwz8bk.com/book/g5aur/)
 - [五十年代港城日常](https://www.xqwz8bk.com/book/g5as5/)
 - [带着签到系统当医生](https://www.xqwz8bk.com/book/g5anv/)

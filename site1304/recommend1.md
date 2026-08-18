@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-08-17 03:13:35
+更新时间：2026-08-18 03:14:05
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -79,12 +79,11 @@
 - [你老婆不要你了喔](https://www.hkffbw.com/book/4nr5gb5/)
 - [绝世美人也能当反派吗[快穿]](https://www.hkffbw.com/book/4nr4ql6/)
 - [古代种田养娃日常](https://www.hkffbw.com/book/4nr4qj2/)
-- [石库门一家人[八零]](https://www.hkffbw.com/book/4nr4q7u/)
+- [沪上弄堂里的小日子[八零]](https://www.hkffbw.com/book/4nr4q7u/)
 - [被反派暴君听到心声后[穿书]](https://www.hkffbw.com/book/4nr4mj0/)
 - [老公对不起](https://www.hkffbw.com/book/4nr4d5k/)
 - [末日安全屋囤货求生](https://www.hkffbw.com/book/4nr3sok/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hkffbw.com/book/4nr3sft/)
-- [我剑](https://www.hkffbw.com/book/4nr3ri7/)
 - [穿Prada的亚裔超模](https://www.hkffbw.com/book/4nr3prn/)
 - [病弱，但攻了顶1 [快穿]](https://www.hkffbw.com/book/4nr3n35/)
 - [你就是那个Beta？](https://www.hkffbw.com/book/4nr3cbd/)
@@ -98,15 +97,14 @@
 - [日化人生[科研]](https://www.hkffbw.com/book/4nr2knd/)
 - [[三国]穿成名士，极限求生](https://www.hkffbw.com/book/4nr2i4k/)
 - [和心机大小姐成为室友后](https://www.hkffbw.com/book/4nr2gaj/)
+- [绝色美人模拟器](https://www.hkffbw.com/book/4nr2g16/)
 - [总有小动物来找我报案](https://www.hkffbw.com/book/4nr2fgi/)
 - [被退婚龙傲天强取豪夺了](https://www.hkffbw.com/book/4nr2dfk/)
 - [不知蝴蝶远](https://www.hkffbw.com/book/4nr2bvb/)
-- [[足球]德布劳内养鼠日记](https://www.hkffbw.com/book/4nr24u7/)
 - [她是反派的背景板母亲](https://www.hkffbw.com/book/f5vlnl/)
 - [前女友孩子三岁了](https://www.hkffbw.com/book/f5vkn2/)
 - [天幕今天也在直播我搞基建](https://www.hkffbw.com/book/f5vjmr/)
 - [在大明当陪房](https://www.hkffbw.com/book/f5vis9/)
-- [死遁的亡夫们都回来了](https://www.hkffbw.com/book/f5vhl7/)
 - [[诡秘之主]好巧啊你也是愚者信徒？](https://www.hkffbw.com/book/f5vgqt/)
 - [风月债](https://www.hkffbw.com/book/f5vgej/)
 - [一个被穿越男占有的老实寡妇](https://www.hkffbw.com/book/f5vgco/)
@@ -119,7 +117,6 @@
 - [谁知权臣是女郎](https://www.hkffbw.com/book/f5vbki/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.hkffbw.com/book/f5vac2/)
 - [死遁后冰山O怀了我的崽](https://www.hkffbw.com/book/f5va3l/)
-- [靠作死统一忍界！](https://www.hkffbw.com/book/f5v71p/)
 - [乱浮生[破镜重圆]](https://www.hkffbw.com/book/f5v11a/)
 - [那座本丸没有被讨厌](https://www.hkffbw.com/book/f5v06r/)
 - [太宗今天又哭了吗](https://www.hkffbw.com/book/f5uvs0/)
@@ -158,7 +155,6 @@
 - [[娱乐圈]过分美丽的她](https://www.hkffbw.com/book/1giuv3/)
 - [带着签到系统当医生](https://www.hkffbw.com/book/1giuot/)
 - [卧底后被港岛大小姐缠上了](https://www.hkffbw.com/book/1giuo1/)
-- [据说我是神仙下凡](https://www.hkffbw.com/book/1giulh/)
 - [五十年代港城日常](https://www.hkffbw.com/book/1giui0/)
 - [穿到反派落魄时](https://www.hkffbw.com/book/1giu8b/)
 - [清澈女大的六零年代](https://www.hkffbw.com/book/1giu0g/)
@@ -171,7 +167,6 @@
 - [大瑛弟国](https://www.hkffbw.com/book/1git1s/)
 - [95美国贵族高中模拟](https://www.hkffbw.com/book/1git1r/)
 - [我真不是算命的！[香江]](https://www.hkffbw.com/book/1git1m/)
-- [在古代上班的日子](https://www.hkffbw.com/book/1gisut/)
 - [科学主义魔法学院](https://www.hkffbw.com/book/4rg2u/)
 - [[诡秘之主]邪神误入塔罗会](https://www.hkffbw.com/book/4rg28/)
 - [幼儿园来了个林大厨[七零]](https://www.hkffbw.com/book/4rg0j/)

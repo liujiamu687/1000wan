@@ -1,7 +1,7 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-08-17 03:14:37
+更新时间：2026-08-18 03:15:04
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
@@ -56,6 +56,7 @@
 - [全忍界都在觊觎我的妻子](https://www.jxbfsz.com/book/29hvlj1/)
 - [看上表弟的漂亮跟班后](https://www.jxbfsz.com/book/29hvlg2/)
 - [[三国]穿成名士，极限求生](https://www.jxbfsz.com/book/29hvlfa/)
+- [绝色美人模拟器](https://www.jxbfsz.com/book/29hvleu/)
 - [受气包A被清冷美人欺负了](https://www.jxbfsz.com/book/29hvldu/)
 - [限制文不是这样的！](https://www.jxbfsz.com/book/29hvlcj/)
 - [仙门透明人被迫万人迷](https://www.jxbfsz.com/book/29hvlap/)
@@ -83,7 +84,6 @@
 - [在大明当陪房](https://www.jxbfsz.com/book/29hvgmq/)
 - [风月债](https://www.jxbfsz.com/book/29hvg7i/)
 - [[希腊神话]蛇蛇神生美妙](https://www.jxbfsz.com/book/29hvdep/)
-- [[足球]德布劳内养鼠日记](https://www.jxbfsz.com/book/29hvccd/)
 - [科学主义魔法学院](https://www.jxbfsz.com/book/29hv9ng/)
 - [梦鱼记](https://www.jxbfsz.com/book/29hv8b9/)
 - [一个被穿越男占有的老实寡妇](https://www.jxbfsz.com/book/29hv3u4/)
@@ -95,7 +95,6 @@
 - [青梅她是诱系直女[娱乐圈]](https://www.jxbfsz.com/book/29hv018/)
 - [欸？我不是玩家吗？！](https://www.jxbfsz.com/book/29hut9c/)
 - [美貌，不值一提［娱乐圈］](https://www.jxbfsz.com/book/29hura8/)
-- [靠作死统一忍界！](https://www.jxbfsz.com/book/29huq6l/)
 - [乱浮生[破镜重圆]](https://www.jxbfsz.com/book/29humqj/)
 - [高嫁之后](https://www.jxbfsz.com/book/29huj4k/)
 - [太宗今天又哭了吗](https://www.jxbfsz.com/book/29huhr4/)
@@ -131,9 +130,8 @@
 - [雄虫他穿回来了](https://www.jxbfsz.com/book/29htlfj/)
 - [予你之名[GB]](https://www.jxbfsz.com/book/29htl0n/)
 - [高三生不可以玩诡异游戏！](https://www.jxbfsz.com/book/29htkkg/)
-- [石库门一家人[八零]](https://www.jxbfsz.com/book/29htj5c/)
+- [沪上弄堂里的小日子[八零]](https://www.jxbfsz.com/book/29htj5c/)
 - [末日安全屋囤货求生](https://www.jxbfsz.com/book/29htj0s/)
-- [死遁的亡夫们都回来了](https://www.jxbfsz.com/book/29htie5/)
 - [刑部的小衙门](https://www.jxbfsz.com/book/29htdgj/)
 - [致富，文旅项目是穿越](https://www.jxbfsz.com/book/29htd2m/)
 - [错把魔尊当感化对象](https://www.jxbfsz.com/book/29ht356/)
@@ -141,7 +139,6 @@
 - [卧底后被港岛大小姐缠上了](https://www.jxbfsz.com/book/29hs84i/)
 - [你老婆不要你了喔](https://www.jxbfsz.com/book/29hs7vg/)
 - [清澈女大的六零年代](https://www.jxbfsz.com/book/29hs7pc/)
-- [在古代上班的日子](https://www.jxbfsz.com/book/29hs7p1/)
 - [猫猫也要养家糊口](https://www.jxbfsz.com/book/29hs7lm/)
 - [如何扮演源氏重宝](https://www.jxbfsz.com/book/29hs7ll/)
 - [海岛求生：生活玩家种田囤货](https://www.jxbfsz.com/book/29hs7bn/)
@@ -149,14 +146,12 @@
 - [穿成炮灰后我封神了［快穿］](https://www.jxbfsz.com/book/29hs784/)
 - [我有一座安全城](https://www.jxbfsz.com/book/29hs76u/)
 - [我真不是算命的！[香江]](https://www.jxbfsz.com/book/29hs71t/)
-- [我剑](https://www.jxbfsz.com/book/29hs70m/)
 - [大瑛弟国](https://www.jxbfsz.com/book/29hs702/)
 - [[娱乐圈]过分美丽的她](https://www.jxbfsz.com/book/29hs6vo/)
 - [在惊悚片里当灵媒[综恐]](https://www.jxbfsz.com/book/29hs6vc/)
 - [[足球]恋与内斯塔](https://www.jxbfsz.com/book/29hs6qn/)
 - [日化人生[科研]](https://www.jxbfsz.com/book/29hs6p3/)
 - [带着签到系统当医生](https://www.jxbfsz.com/book/29hs6o1/)
-- [据说我是神仙下凡](https://www.jxbfsz.com/book/29hs6m5/)
 - [成为养成系练习生后](https://www.jxbfsz.com/book/29hs6ep/)
 - [她是反派的背景板母亲](https://www.jxbfsz.com/book/29hs6af/)
 - [古代种田养娃日常](https://www.jxbfsz.com/book/29hs69j/)

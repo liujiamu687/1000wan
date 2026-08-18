@@ -1,7 +1,7 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-08-17 03:18:57
+更新时间：2026-08-18 03:19:37
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
@@ -10,6 +10,7 @@
 ## 最新小说
 - [厌世假少爷重生后](https://www.shenyuanhg.com/book/7gict1j/)
 - [动物世界恋爱指北[快穿]](https://www.shenyuanhg.com/book/7gic7qi/)
+- [绝色美人模拟器](https://www.shenyuanhg.com/book/7gic7ld/)
 - [[诡秘之主]邪神误入塔罗会](https://www.shenyuanhg.com/book/7gic7e3/)
 - [C罗不是绯闻男友[足球]](https://www.shenyuanhg.com/book/7gic7a5/)
 - [[全职高手]见鬼！](https://www.shenyuanhg.com/book/7gic79n/)
@@ -83,7 +84,6 @@
 - [在大明当陪房](https://www.shenyuanhg.com/book/7gibvim/)
 - [风月债](https://www.shenyuanhg.com/book/7gibv5v/)
 - [[希腊神话]蛇蛇神生美妙](https://www.shenyuanhg.com/book/7gibtvg/)
-- [[足球]德布劳内养鼠日记](https://www.shenyuanhg.com/book/7gibscu/)
 - [科学主义魔法学院](https://www.shenyuanhg.com/book/7gibpu0/)
 - [梦鱼记](https://www.shenyuanhg.com/book/7gibmif/)
 - [一个被穿越男占有的老实寡妇](https://www.shenyuanhg.com/book/7gibke4/)
@@ -95,7 +95,6 @@
 - [欸？我不是玩家吗？！](https://www.shenyuanhg.com/book/7gibe85/)
 - [青梅她是诱系直女[娱乐圈]](https://www.shenyuanhg.com/book/7gibdjv/)
 - [美貌，不值一提［娱乐圈］](https://www.shenyuanhg.com/book/7gibd51/)
-- [靠作死统一忍界！](https://www.shenyuanhg.com/book/7gib8e3/)
 - [乱浮生[破镜重圆]](https://www.shenyuanhg.com/book/7gib6tv/)
 - [太宗今天又哭了吗](https://www.shenyuanhg.com/book/7gib3ou/)
 - [高嫁之后](https://www.shenyuanhg.com/book/7gib3is/)
@@ -132,14 +131,11 @@
 - [玉轸（古代ABO）](https://www.shenyuanhg.com/book/7gia53c/)
 - [予你之名[GB]](https://www.shenyuanhg.com/book/7gia4ff/)
 - [末日安全屋囤货求生](https://www.shenyuanhg.com/book/7gia4cu/)
-- [石库门一家人[八零]](https://www.shenyuanhg.com/book/7gia3uk/)
-- [死遁的亡夫们都回来了](https://www.shenyuanhg.com/book/7gia3bc/)
+- [沪上弄堂里的小日子[八零]](https://www.shenyuanhg.com/book/7gia3uk/)
 - [刑部的小衙门](https://www.shenyuanhg.com/book/7gi9u1e/)
 - [致富，文旅项目是穿越](https://www.shenyuanhg.com/book/7gi9sl6/)
 - [错把魔尊当感化对象](https://www.shenyuanhg.com/book/7gi9kbh/)
 - [日化人生[科研]](https://www.shenyuanhg.com/book/7gi8oc6/)
-- [我剑](https://www.shenyuanhg.com/book/7gi8oc0/)
-- [在古代上班的日子](https://www.shenyuanhg.com/book/7gi8oa4/)
 - [穿成炮灰后我封神了［快穿］](https://www.shenyuanhg.com/book/7gi8o7v/)
 - [五十年代港城日常](https://www.shenyuanhg.com/book/7gi8o7t/)
 - [你就是那个Beta？](https://www.shenyuanhg.com/book/7gi8o5s/)
@@ -155,7 +151,6 @@
 - [古代种田养娃日常](https://www.shenyuanhg.com/book/7gi8n0h/)
 - [清澈女大的六零年代](https://www.shenyuanhg.com/book/7gi8mv3/)
 - [[咒回]绝不会喜欢五条君的！](https://www.shenyuanhg.com/book/7gi8mpv/)
-- [据说我是神仙下凡](https://www.shenyuanhg.com/book/7gi8moi/)
 - [天幕今天也在直播我搞基建](https://www.shenyuanhg.com/book/7gi8mn0/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shenyuanhg.com/book/7gi8mm1/)
 - [海岛求生：生活玩家种田囤货](https://www.shenyuanhg.com/book/7gi8mlr/)

@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-17 03:11:39
+更新时间：2026-08-18 03:12:06
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -79,10 +79,9 @@
 - [你老婆不要你了喔](https://www.cialisgs.com/book/89rtoh6/)
 - [绝世美人也能当反派吗[快穿]](https://www.cialisgs.com/book/89rtcb8/)
 - [古代种田养娃日常](https://www.cialisgs.com/book/89rtcav/)
-- [石库门一家人[八零]](https://www.cialisgs.com/book/89rt30d/)
+- [沪上弄堂里的小日子[八零]](https://www.cialisgs.com/book/89rt30d/)
 - [被反派暴君听到心声后[穿书]](https://www.cialisgs.com/book/89rsv63/)
 - [老公对不起](https://www.cialisgs.com/book/89rsl9m/)
-- [我剑](https://www.cialisgs.com/book/89rsj7c/)
 - [穿Prada的亚裔超模](https://www.cialisgs.com/book/89rsj3e/)
 - [末日安全屋囤货求生](https://www.cialisgs.com/book/89rsa9t/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cialisgs.com/book/89rs6tq/)
@@ -97,13 +96,12 @@
 - [日化人生[科研]](https://www.cialisgs.com/book/89rqtj1/)
 - [巨物致富：回乡开钓场](https://www.cialisgs.com/book/89rqr6m/)
 - [[三国]穿成名士，极限求生](https://www.cialisgs.com/book/89rqq95/)
+- [绝色美人模拟器](https://www.cialisgs.com/book/89rqp0s/)
 - [总有小动物来找我报案](https://www.cialisgs.com/book/89rqopj/)
 - [和心机大小姐成为室友后](https://www.cialisgs.com/book/89rqnp1/)
 - [不知蝴蝶远](https://www.cialisgs.com/book/89rqmib/)
 - [被退婚龙傲天强取豪夺了](https://www.cialisgs.com/book/89rqi2n/)
-- [[足球]德布劳内养鼠日记](https://www.cialisgs.com/book/qiroq1/)
 - [前女友孩子三岁了](https://www.cialisgs.com/book/qirm5o/)
-- [死遁的亡夫们都回来了](https://www.cialisgs.com/book/qirl58/)
 - [她是反派的背景板母亲](https://www.cialisgs.com/book/qirkuq/)
 - [天幕今天也在直播我搞基建](https://www.cialisgs.com/book/qirkpv/)
 - [在大明当陪房](https://www.cialisgs.com/book/qirk6g/)
@@ -119,7 +117,6 @@
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.cialisgs.com/book/qirce7/)
 - [死遁后冰山O怀了我的崽](https://www.cialisgs.com/book/qirb3n/)
 - [谁知权臣是女郎](https://www.cialisgs.com/book/qir9jd/)
-- [靠作死统一忍界！](https://www.cialisgs.com/book/qir8id/)
 - [那座本丸没有被讨厌](https://www.cialisgs.com/book/qir2i4/)
 - [乱浮生[破镜重圆]](https://www.cialisgs.com/book/qir2gt/)
 - [太宗今天又哭了吗](https://www.cialisgs.com/book/qir1hu/)
@@ -156,7 +153,6 @@
 - [95美国贵族高中模拟](https://www.cialisgs.com/book/2l2i4n/)
 - [大瑛弟国](https://www.cialisgs.com/book/2l2i2f/)
 - [幼儿园来了个林大厨[七零]](https://www.cialisgs.com/book/2l2i09/)
-- [据说我是神仙下凡](https://www.cialisgs.com/book/2l2hmn/)
 - [警察，但犯罪大师系统[刑侦]](https://www.cialisgs.com/book/2l2hlk/)
 - [海岛求生：生活玩家种田囤货](https://www.cialisgs.com/book/2l2hhm/)
 - [卧底后被港岛大小姐缠上了](https://www.cialisgs.com/book/2l2hcm/)
@@ -174,7 +170,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.cialisgs.com/book/8g8bb/)
 - [高门小婢](https://www.cialisgs.com/book/8g8am/)
 - [我有一座安全城](https://www.cialisgs.com/book/8g823/)
-- [在古代上班的日子](https://www.cialisgs.com/book/8g81u/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1283/index.md)

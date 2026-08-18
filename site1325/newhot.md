@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-17 03:21:10
+更新时间：2026-08-18 03:22:04
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
@@ -9,6 +9,8 @@
 
 ## 最新小说
 - [限制文不是这样的！](https://www.xqwz8bk.com/book/1igm2rn/)
+- [给控制狂龙傲天当老婆](https://www.xqwz8bk.com/book/1igm2ri/)
+- [阴郁路人不想被喜欢](https://www.xqwz8bk.com/book/1igm2r3/)
 - [高嫁之后](https://www.xqwz8bk.com/book/1igm2q2/)
 - [纯爱宇智波基本恋爱法](https://www.xqwz8bk.com/book/1igm2ok/)
 - [[希腊神话]蛇蛇神生美妙](https://www.xqwz8bk.com/book/1igm2oh/)
@@ -18,27 +20,33 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.xqwz8bk.com/book/1igihso/)
 - [全球进化，而我保持不变](https://www.xqwz8bk.com/book/51nng7/)
 - [她是反派的背景板母亲](https://www.xqwz8bk.com/book/51nk6q/)
-- [新来的室友令人不爽](https://www.xqwz8bk.com/book/51nemg/)
+- [若清晨所见之蓝](https://www.xqwz8bk.com/book/51niuo/)
+- [沈助理又在隐藏他的超能力](https://www.xqwz8bk.com/book/51nhdc/)
 - [误标记隔壁阿姨O之后](https://www.xqwz8bk.com/book/51ndsd/)
-- [在立海大玩网球模拟器](https://www.xqwz8bk.com/book/51n6gr/)
-- [[足球]最佳前锋](https://www.xqwz8bk.com/book/51mvsj/)
-- [被迫臣服冰山顶级大小姐O](https://www.xqwz8bk.com/book/51mutd/)
-- [养了一个废太子](https://www.xqwz8bk.com/book/51msko/)
-- [咕哒，菜菜，捞捞](https://www.xqwz8bk.com/book/51ms6i/)
+- [死遁后冰山O怀了我的崽](https://www.xqwz8bk.com/book/51nc27/)
+- [[足球]可以来利物浦踢后腰吗](https://www.xqwz8bk.com/book/51nan9/)
+- [可是你也砂锅我](https://www.xqwz8bk.com/book/51n91l/)
+- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.xqwz8bk.com/book/51n40f/)
+- [宇智波的遗产](https://www.xqwz8bk.com/book/51mupj/)
+- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.xqwz8bk.com/book/51mu28/)
+- [阴阳师也可以打网球](https://www.xqwz8bk.com/book/51mqs2/)
 - [我与龙傲天寿命共享](https://www.xqwz8bk.com/book/51mp1f/)
+- [你也没死？](https://www.xqwz8bk.com/book/51mnqs/)
 - [[秦]公子扶苏](https://www.xqwz8bk.com/book/51mnkk/)
+- [这谁的沙雕二次元心声！](https://www.xqwz8bk.com/book/51mm6d/)
 - [小丧尸也要被迫求生吗](https://www.xqwz8bk.com/book/51mlhu/)
 - [死遁后成了忍界白月光？](https://www.xqwz8bk.com/book/51mkuj/)
+- [老婆是恋爱脑女配](https://www.xqwz8bk.com/book/51mkcl/)
 - [老公是松散生命体](https://www.xqwz8bk.com/book/51mj0i/)
+- [东北土豪娇养小甜心后](https://www.xqwz8bk.com/book/51mep5/)
 - [在魔法世界屯田争霸](https://www.xqwz8bk.com/book/51me3v/)
-- [误入反派培养直播后](https://www.xqwz8bk.com/book/51ma0q/)
-- [多梦你一会儿](https://www.xqwz8bk.com/book/51m9kq/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.xqwz8bk.com/book/51m8ed/)
-- [拯救世界从扮演反派开始](https://www.xqwz8bk.com/book/51m6sd/)
+- [[足球]罗蜜第一志愿](https://www.xqwz8bk.com/book/51m4qf/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.xqwz8bk.com/book/51m4lu/)
 - [八零恶毒后妈杀疯了](https://www.xqwz8bk.com/book/51m476/)
 - [在民俗惊悚片被诸神庇护](https://www.xqwz8bk.com/book/51lti9/)
-- [贝利珠](https://www.xqwz8bk.com/book/g5b8p/)
+- [哥你不能不要我](https://www.xqwz8bk.com/book/51lih5/)
+- [被奇犽告白以后](https://www.xqwz8bk.com/book/1jnq8/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1325/index.md)
