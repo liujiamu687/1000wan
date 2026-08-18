@@ -1,13 +1,14 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-08-16 03:16:42
+更新时间：2026-08-18 03:21:42
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
 - [笔趣阁小说网](https://www.xiaoshuo139.com/)
 
 ## 最新小说
+- [厌世假少爷重生后](https://www.xiaoshuo139.com/book/2ch7tub/)
 - [长兄之妻](https://www.xiaoshuo139.com/book/2ch7tu4/)
 - [康熙八格格的躺赢日常[清穿]](https://www.xiaoshuo139.com/book/2ch7tu3/)
 - [虚荣直男被迫万人迷](https://www.xiaoshuo139.com/book/2ch7tu2/)
@@ -59,7 +60,6 @@
 - [全家穿越：从面摊开始致富](https://www.xiaoshuo139.com/book/2ch7tq5/)
 - [朕与皇后天生一对](https://www.xiaoshuo139.com/book/2ch7tq4/)
 - [十九世纪调料女王](https://www.xiaoshuo139.com/book/2ch7tq2/)
-- [年代文漂亮女配高嫁日常](https://www.xiaoshuo139.com/book/2ch7tq1/)
 - [我让修真界5G全覆盖](https://www.xiaoshuo139.com/book/2ch7tq0/)
 - [第一赋灵师](https://www.xiaoshuo139.com/book/2ch7tpv/)
 - [陷落心弦](https://www.xiaoshuo139.com/book/2ch7tpt/)
@@ -79,11 +79,9 @@
 - [你老婆不要你了喔](https://www.xiaoshuo139.com/book/2ch7itn/)
 - [绝世美人也能当反派吗[快穿]](https://www.xiaoshuo139.com/book/2ch7840/)
 - [古代种田养娃日常](https://www.xiaoshuo139.com/book/2ch77p4/)
-- [石库门一家人[八零]](https://www.xiaoshuo139.com/book/2ch77lb/)
+- [沪上弄堂里的小日子[八零]](https://www.xiaoshuo139.com/book/2ch77lb/)
 - [被反派暴君听到心声后[穿书]](https://www.xiaoshuo139.com/book/2ch6q92/)
 - [老公对不起](https://www.xiaoshuo139.com/book/2ch6pbn/)
-- [我剑](https://www.xiaoshuo139.com/book/2ch6auj/)
-- [寡妇与糙汉（穿越）](https://www.xiaoshuo139.com/book/2ch66aj/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xiaoshuo139.com/book/2ch664u/)
 - [末日安全屋囤货求生](https://www.xiaoshuo139.com/book/2ch65b8/)
 - [穿Prada的亚裔超模](https://www.xiaoshuo139.com/book/2ch64eu/)
@@ -100,9 +98,9 @@
 - [[三国]穿成名士，极限求生](https://www.xiaoshuo139.com/book/2ch4l78/)
 - [总有小动物来找我报案](https://www.xiaoshuo139.com/book/2ch4h5e/)
 - [和心机大小姐成为室友后](https://www.xiaoshuo139.com/book/2ch4gj6/)
+- [绝色美人模拟器](https://www.xiaoshuo139.com/book/2ch4g2a/)
 - [被退婚龙傲天强取豪夺了](https://www.xiaoshuo139.com/book/2ch4dbp/)
 - [不知蝴蝶远](https://www.xiaoshuo139.com/book/2ch4d9u/)
-- [[足球]德布劳内养鼠日记](https://www.xiaoshuo139.com/book/2ch49bf/)
 - [前女友孩子三岁了](https://www.xiaoshuo139.com/book/7kvt59/)
 - [在大明当陪房](https://www.xiaoshuo139.com/book/7kvq23/)
 - [她是反派的背景板母亲](https://www.xiaoshuo139.com/book/7kvpua/)
@@ -119,10 +117,9 @@
 - [死遁后冰山O怀了我的崽](https://www.xiaoshuo139.com/book/7kvi3l/)
 - [谁知权臣是女郎](https://www.xiaoshuo139.com/book/7kvhur/)
 - [成为养成系练习生后](https://www.xiaoshuo139.com/book/7kvh3j/)
-- [靠作死统一忍界！](https://www.xiaoshuo139.com/book/7kvgod/)
 - [那座本丸没有被讨厌](https://www.xiaoshuo139.com/book/7kvaah/)
 - [乱浮生[破镜重圆]](https://www.xiaoshuo139.com/book/7kva5l/)
-- [望海潮](https://www.xiaoshuo139.com/book/7kv4i7/)
+- [太宗今天又哭了吗](https://www.xiaoshuo139.com/book/7kv87a/)
 - [他们战斗我种田，他们贫穷我数钱](https://www.xiaoshuo139.com/book/7kv4go/)
 - [救世主马甲扮演指南](https://www.xiaoshuo139.com/book/7kv4g0/)
 - [全星际都想吃我做的菜](https://www.xiaoshuo139.com/book/7kv38v/)
@@ -130,8 +127,6 @@
 - [反派小姨靠直播卖货爆红了](https://www.xiaoshuo139.com/book/7kuvf6/)
 - [扮演古早人设？我吗？](https://www.xiaoshuo139.com/book/7kuupk/)
 - [尚了眼盲公主后GL](https://www.xiaoshuo139.com/book/7kusvn/)
-- [天幕曝我靠装昏君一统天下](https://www.xiaoshuo139.com/book/7kusno/)
-- [末世我有一棵树（无限）](https://www.xiaoshuo139.com/book/7kuq98/)
 - [每天都在阻止哥哥殉职[九零]](https://www.xiaoshuo139.com/book/7kupu8/)
 - [如何养成一个反派](https://www.xiaoshuo139.com/book/7kuopb/)
 - [商户女与大将军](https://www.xiaoshuo139.com/book/7kunq3/)
@@ -167,10 +162,7 @@
 - [高门小婢](https://www.xiaoshuo139.com/book/ofnmd/)
 - [[娱乐圈]过分美丽的她](https://www.xiaoshuo139.com/book/ofnfb/)
 - [95美国贵族高中模拟](https://www.xiaoshuo139.com/book/ofnbq/)
-- [在古代上班的日子](https://www.xiaoshuo139.com/book/ofn87/)
-- [普通人，但魅魔体质](https://www.xiaoshuo139.com/book/ofn7g/)
 - [科学主义魔法学院](https://www.xiaoshuo139.com/book/ofn73/)
-- [[足球]米兰逆子成长记](https://www.xiaoshuo139.com/book/ofn6n/)
 - [我真不是算命的！[香江]](https://www.xiaoshuo139.com/book/ofn64/)
 - [清澈女大的六零年代](https://www.xiaoshuo139.com/book/2ecg9/)
 - [全民求生:从小木屋到魔法农场](https://www.xiaoshuo139.com/book/2ecfl/)
@@ -178,7 +170,6 @@
 - [五十年代港城日常](https://www.xiaoshuo139.com/book/2ec8m/)
 - [大瑛弟国](https://www.xiaoshuo139.com/book/2ec88/)
 - [卧底后被港岛大小姐缠上了](https://www.xiaoshuo139.com/book/2ec49/)
-- [据说我是神仙下凡](https://www.xiaoshuo139.com/book/2ec2o/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1324/index.md)

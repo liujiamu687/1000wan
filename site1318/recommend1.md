@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-08-17 03:19:12
+更新时间：2026-08-18 03:19:53
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -79,12 +79,11 @@
 - [你老婆不要你了喔](https://www.shuqi687.com/book/8vsm86a/)
 - [绝世美人也能当反派吗[快穿]](https://www.shuqi687.com/book/8vslsoi/)
 - [古代种田养娃日常](https://www.shuqi687.com/book/8vslsll/)
-- [石库门一家人[八零]](https://www.shuqi687.com/book/8vslsbr/)
+- [沪上弄堂里的小日子[八零]](https://www.shuqi687.com/book/8vslsbr/)
 - [被反派暴君听到心声后[穿书]](https://www.shuqi687.com/book/8vslfaa/)
 - [老公对不起](https://www.shuqi687.com/book/8vsl53o/)
 - [末日安全屋囤货求生](https://www.shuqi687.com/book/8vsl3kv/)
 - [穿Prada的亚裔超模](https://www.shuqi687.com/book/8vsku9s/)
-- [我剑](https://www.shuqi687.com/book/8vsku08/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shuqi687.com/book/8vskirb/)
 - [病弱，但攻了顶1 [快穿]](https://www.shuqi687.com/book/8vskg78/)
 - [你就是那个Beta？](https://www.shuqi687.com/book/8vsk53c/)
@@ -97,15 +96,14 @@
 - [天幕剧透拆家幼崽是千古一帝](https://www.shuqi687.com/book/8vsjd7b/)
 - [巨物致富：回乡开钓场](https://www.shuqi687.com/book/8vsjc70/)
 - [[三国]穿成名士，极限求生](https://www.shuqi687.com/book/8vsjbca/)
+- [绝色美人模拟器](https://www.shuqi687.com/book/8vsj7nj/)
 - [总有小动物来找我报案](https://www.shuqi687.com/book/8vsj5hs/)
 - [不知蝴蝶远](https://www.shuqi687.com/book/8vsj59e/)
 - [和心机大小姐成为室友后](https://www.shuqi687.com/book/8vsj536/)
 - [被退婚龙傲天强取豪夺了](https://www.shuqi687.com/book/8vsj1kc/)
-- [[足球]德布劳内养鼠日记](https://www.shuqi687.com/book/8vsitmu/)
 - [前女友孩子三岁了](https://www.shuqi687.com/book/spaure/)
 - [天幕今天也在直播我搞基建](https://www.shuqi687.com/book/spatkf/)
 - [她是反派的背景板母亲](https://www.shuqi687.com/book/spas3v/)
-- [死遁的亡夫们都回来了](https://www.shuqi687.com/book/sparh5/)
 - [在大明当陪房](https://www.shuqi687.com/book/sparen/)
 - [一个被穿越男占有的老实寡妇](https://www.shuqi687.com/book/spapul/)
 - [风月债](https://www.shuqi687.com/book/spaocu/)
@@ -119,7 +117,6 @@
 - [死遁后冰山O怀了我的崽](https://www.shuqi687.com/book/spajgn/)
 - [在武侠世界造反的日子[剑三+综武侠]](https://www.shuqi687.com/book/spai8i/)
 - [美貌，不值一提［娱乐圈］](https://www.shuqi687.com/book/spai7r/)
-- [靠作死统一忍界！](https://www.shuqi687.com/book/spagaa/)
 - [太宗今天又哭了吗](https://www.shuqi687.com/book/spaau9/)
 - [乱浮生[破镜重圆]](https://www.shuqi687.com/book/spaaoq/)
 - [那座本丸没有被讨厌](https://www.shuqi687.com/book/spaa3f/)
@@ -157,7 +154,6 @@
 - [大瑛弟国](https://www.shuqi687.com/book/2s42vg/)
 - [警察，但犯罪大师系统[刑侦]](https://www.shuqi687.com/book/2s42sj/)
 - [[娱乐圈]过分美丽的她](https://www.shuqi687.com/book/2s42m9/)
-- [据说我是神仙下凡](https://www.shuqi687.com/book/2s42la/)
 - [我有一座安全城](https://www.shuqi687.com/book/2s42km/)
 - [穿到反派落魄时](https://www.shuqi687.com/book/2s428o/)
 - [[诡秘之主]邪神误入塔罗会](https://www.shuqi687.com/book/2s428a/)
@@ -166,7 +162,6 @@
 - [我真不是算命的！[香江]](https://www.shuqi687.com/book/2s41si/)
 - [95美国贵族高中模拟](https://www.shuqi687.com/book/2s41pu/)
 - [五十年代港城日常](https://www.shuqi687.com/book/2s41j6/)
-- [在古代上班的日子](https://www.shuqi687.com/book/2s41as/)
 - [高门小婢](https://www.shuqi687.com/book/2s41al/)
 - [我是唯一地上神国](https://www.shuqi687.com/book/96qdu/)
 - [如何扮演源氏重宝](https://www.shuqi687.com/book/96qat/)

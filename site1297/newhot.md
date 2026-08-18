@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-08-17 03:14:50
+更新时间：2026-08-18 03:15:17
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -9,36 +9,44 @@
 
 ## 最新小说
 - [[希腊神话]蛇蛇神生美妙](https://www.kangrunwangye.com/book/1o9mfur/)
+- [给控制狂龙傲天当老婆](https://www.kangrunwangye.com/book/1o9mftq/)
 - [纯爱宇智波基本恋爱法](https://www.kangrunwangye.com/book/1o9mftb/)
 - [高嫁之后](https://www.kangrunwangye.com/book/1o9mft7/)
 - [限制文不是这样的！](https://www.kangrunwangye.com/book/1o9mfse/)
+- [阴郁路人不想被喜欢](https://www.kangrunwangye.com/book/1o9mfrp/)
 - [如何嫁给当朝首辅](https://www.kangrunwangye.com/book/1o9jnso/)
 - [我的老公是暴君](https://www.kangrunwangye.com/book/1o9jj4p/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.kangrunwangye.com/book/1o9j1c9/)
 - [穿到法国，但超越者公务员](https://www.kangrunwangye.com/book/1o9j0d4/)
 - [全球进化，而我保持不变](https://www.kangrunwangye.com/book/5k7q1a/)
 - [她是反派的背景板母亲](https://www.kangrunwangye.com/book/5k7nro/)
-- [新来的室友令人不爽](https://www.kangrunwangye.com/book/5k7ha1/)
+- [若清晨所见之蓝](https://www.kangrunwangye.com/book/5k7nie/)
+- [沈助理又在隐藏他的超能力](https://www.kangrunwangye.com/book/5k7iof/)
 - [误标记隔壁阿姨O之后](https://www.kangrunwangye.com/book/5k7f41/)
-- [在立海大玩网球模拟器](https://www.kangrunwangye.com/book/5k78m4/)
-- [被迫臣服冰山顶级大小姐O](https://www.kangrunwangye.com/book/5k72bl/)
-- [[足球]最佳前锋](https://www.kangrunwangye.com/book/5k71v8/)
-- [养了一个废太子](https://www.kangrunwangye.com/book/5k6v7d/)
-- [咕哒，菜菜，捞捞](https://www.kangrunwangye.com/book/5k6tdc/)
+- [死遁后冰山O怀了我的崽](https://www.kangrunwangye.com/book/5k7e5j/)
+- [[足球]可以来利物浦踢后腰吗](https://www.kangrunwangye.com/book/5k7c3j/)
+- [可是你也砂锅我](https://www.kangrunwangye.com/book/5k7c1e/)
+- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.kangrunwangye.com/book/5k75l1/)
+- [宇智波的遗产](https://www.kangrunwangye.com/book/5k6v4m/)
+- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.kangrunwangye.com/book/5k6upj/)
+- [阴阳师也可以打网球](https://www.kangrunwangye.com/book/5k6qer/)
+- [你也没死？](https://www.kangrunwangye.com/book/5k6pqj/)
 - [我与龙傲天寿命共享](https://www.kangrunwangye.com/book/5k6pgf/)
 - [[秦]公子扶苏](https://www.kangrunwangye.com/book/5k6oup/)
 - [死遁后成了忍界白月光？](https://www.kangrunwangye.com/book/5k6lr7/)
 - [小丧尸也要被迫求生吗](https://www.kangrunwangye.com/book/5k6lm4/)
+- [老婆是恋爱脑女配](https://www.kangrunwangye.com/book/5k6l9m/)
 - [老公是松散生命体](https://www.kangrunwangye.com/book/5k6kss/)
+- [这谁的沙雕二次元心声！](https://www.kangrunwangye.com/book/5k6kik/)
 - [在魔法世界屯田争霸](https://www.kangrunwangye.com/book/5k6gpk/)
-- [误入反派培养直播后](https://www.kangrunwangye.com/book/5k6dk8/)
-- [多梦你一会儿](https://www.kangrunwangye.com/book/5k6bao/)
+- [东北土豪娇养小甜心后](https://www.kangrunwangye.com/book/5k6fdt/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kangrunwangye.com/book/5k68v4/)
-- [拯救世界从扮演反派开始](https://www.kangrunwangye.com/book/5k67r2/)
+- [[足球]罗蜜第一志愿](https://www.kangrunwangye.com/book/5k66hg/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.kangrunwangye.com/book/5k65n7/)
 - [八零恶毒后妈杀疯了](https://www.kangrunwangye.com/book/5k638i/)
 - [在民俗惊悚片被诸神庇护](https://www.kangrunwangye.com/book/5k5tl9/)
-- [贝利珠](https://www.kangrunwangye.com/book/i0i0p/)
+- [哥你不能不要我](https://www.kangrunwangye.com/book/5k5l59/)
+- [被奇犽告白以后](https://www.kangrunwangye.com/book/i0h7q/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1297/index.md)

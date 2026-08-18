@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-08-17 03:19:12
+更新时间：2026-08-18 03:19:53
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -9,36 +9,45 @@
 
 ## 最新小说
 - [[希腊神话]蛇蛇神生美妙](https://www.shuqi687.com/book/8vsmj5o/)
+- [从异世界穿回来后](https://www.shuqi687.com/book/8vsmj2t/)
+- [给控制狂龙傲天当老婆](https://www.shuqi687.com/book/8vsmj2j/)
 - [纯爱宇智波基本恋爱法](https://www.shuqi687.com/book/8vsmj2d/)
 - [限制文不是这样的！](https://www.shuqi687.com/book/8vsmj2c/)
+- [阴郁路人不想被喜欢](https://www.shuqi687.com/book/8vsmj26/)
 - [高嫁之后](https://www.shuqi687.com/book/8vsmj1p/)
 - [我的老公是暴君](https://www.shuqi687.com/book/8vslfau/)
 - [如何嫁给当朝首辅](https://www.shuqi687.com/book/8vsjq8c/)
 - [穿到法国，但超越者公务员](https://www.shuqi687.com/book/8vsj4li/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.shuqi687.com/book/8vsj473/)
 - [全球进化，而我保持不变](https://www.shuqi687.com/book/spauf2/)
+- [若清晨所见之蓝](https://www.shuqi687.com/book/spatcg/)
 - [她是反派的背景板母亲](https://www.shuqi687.com/book/spas3v/)
-- [新来的室友令人不爽](https://www.shuqi687.com/book/spamv8/)
+- [沈助理又在隐藏他的超能力](https://www.shuqi687.com/book/spao95/)
 - [误标记隔壁阿姨O之后](https://www.shuqi687.com/book/spam06/)
-- [在立海大玩网球模拟器](https://www.shuqi687.com/book/spacn6/)
-- [被迫臣服冰山顶级大小姐O](https://www.shuqi687.com/book/spa84c/)
-- [养了一个废太子](https://www.shuqi687.com/book/spa7bs/)
-- [[足球]最佳前锋](https://www.shuqi687.com/book/spa757/)
-- [咕哒，菜菜，捞捞](https://www.shuqi687.com/book/spa0lc/)
+- [死遁后冰山O怀了我的崽](https://www.shuqi687.com/book/spajgn/)
+- [可是你也砂锅我](https://www.shuqi687.com/book/spagl6/)
+- [[足球]可以来利物浦踢后腰吗](https://www.shuqi687.com/book/spaf99/)
+- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.shuqi687.com/book/spa9fl/)
+- [宇智波的遗产](https://www.shuqi687.com/book/spa4m7/)
+- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.shuqi687.com/book/spa4e9/)
+- [阴阳师也可以打网球](https://www.shuqi687.com/book/spa3el/)
+- [你也没死？](https://www.shuqi687.com/book/spa09d/)
 - [我与龙傲天寿命共享](https://www.shuqi687.com/book/sp9vqs/)
+- [老婆是恋爱脑女配](https://www.shuqi687.com/book/sp9v9s/)
 - [[秦]公子扶苏](https://www.shuqi687.com/book/sp9uit/)
 - [小丧尸也要被迫求生吗](https://www.shuqi687.com/book/sp9t8t/)
 - [死遁后成了忍界白月光？](https://www.shuqi687.com/book/sp9t12/)
+- [这谁的沙雕二次元心声！](https://www.shuqi687.com/book/sp9svf/)
 - [老公是松散生命体](https://www.shuqi687.com/book/sp9sc6/)
+- [东北土豪娇养小甜心后](https://www.shuqi687.com/book/sp9no7/)
 - [在魔法世界屯田争霸](https://www.shuqi687.com/book/sp9l2m/)
-- [误入反派培养直播后](https://www.shuqi687.com/book/sp9hda/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.shuqi687.com/book/sp9gnl/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shuqi687.com/book/sp9gj5/)
-- [多梦你一会儿](https://www.shuqi687.com/book/sp9fmn/)
-- [拯救世界从扮演反派开始](https://www.shuqi687.com/book/sp9bhp/)
+- [[足球]罗蜜第一志愿](https://www.shuqi687.com/book/sp9eq7/)
 - [八零恶毒后妈杀疯了](https://www.shuqi687.com/book/sp98i2/)
 - [在民俗惊悚片被诸神庇护](https://www.shuqi687.com/book/sp93he/)
-- [贝利珠](https://www.shuqi687.com/book/2s41h9/)
+- [哥你不能不要我](https://www.shuqi687.com/book/sp8qs9/)
+- [被奇犽告白以后](https://www.shuqi687.com/book/2s42nm/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1318/index.md)

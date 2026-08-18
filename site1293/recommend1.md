@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-17 03:10:58
+更新时间：2026-08-18 03:11:25
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -79,13 +79,12 @@
 - [你老婆不要你了喔](https://www.ccccenergy.com/book/7caqr22/)
 - [绝世美人也能当反派吗[快穿]](https://www.ccccenergy.com/book/7caqfd7/)
 - [古代种田养娃日常](https://www.ccccenergy.com/book/7caqfap/)
-- [石库门一家人[八零]](https://www.ccccenergy.com/book/7caqevq/)
+- [沪上弄堂里的小日子[八零]](https://www.ccccenergy.com/book/7caqevq/)
 - [被反派暴君听到心声后[穿书]](https://www.ccccenergy.com/book/7caq24q/)
 - [老公对不起](https://www.ccccenergy.com/book/7capnpu/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ccccenergy.com/book/7capi8k/)
 - [末日安全屋囤货求生](https://www.ccccenergy.com/book/7capbe2/)
 - [穿Prada的亚裔超模](https://www.ccccenergy.com/book/7capbcr/)
-- [我剑](https://www.ccccenergy.com/book/7cap4p5/)
 - [病弱，但攻了顶1 [快穿]](https://www.ccccenergy.com/book/7cap2th/)
 - [你就是那个Beta？](https://www.ccccenergy.com/book/7caoo2j/)
 - [御兽师，我打工养你啊](https://www.ccccenergy.com/book/7caomll/)
@@ -98,14 +97,13 @@
 - [巨物致富：回乡开钓场](https://www.ccccenergy.com/book/7cantft/)
 - [[三国]穿成名士，极限求生](https://www.ccccenergy.com/book/7canstt/)
 - [和心机大小姐成为室友后](https://www.ccccenergy.com/book/7cansc6/)
+- [绝色美人模拟器](https://www.ccccenergy.com/book/7canq7q/)
 - [不知蝴蝶远](https://www.ccccenergy.com/book/7canoee/)
 - [总有小动物来找我报案](https://www.ccccenergy.com/book/7cannbv/)
 - [被退婚龙傲天强取豪夺了](https://www.ccccenergy.com/book/7canmke/)
-- [[足球]德布劳内养鼠日记](https://www.ccccenergy.com/book/7canevu/)
 - [前女友孩子三岁了](https://www.ccccenergy.com/book/nkbelp/)
 - [天幕今天也在直播我搞基建](https://www.ccccenergy.com/book/nkbb0r/)
 - [在大明当陪房](https://www.ccccenergy.com/book/nkbapl/)
-- [死遁的亡夫们都回来了](https://www.ccccenergy.com/book/nkbacu/)
 - [她是反派的背景板母亲](https://www.ccccenergy.com/book/nkb9n4/)
 - [风月债](https://www.ccccenergy.com/book/nkb949/)
 - [[诡秘之主]好巧啊你也是愚者信徒？](https://www.ccccenergy.com/book/nkb8f4/)
@@ -119,7 +117,6 @@
 - [死遁后冰山O怀了我的崽](https://www.ccccenergy.com/book/nkb2hc/)
 - [谁知权臣是女郎](https://www.ccccenergy.com/book/nkb1in/)
 - [美貌，不值一提［娱乐圈］](https://www.ccccenergy.com/book/nkb1b4/)
-- [靠作死统一忍界！](https://www.ccccenergy.com/book/nkave5/)
 - [太宗今天又哭了吗](https://www.ccccenergy.com/book/nkap7o/)
 - [那座本丸没有被讨厌](https://www.ccccenergy.com/book/nkaop8/)
 - [乱浮生[破镜重圆]](https://www.ccccenergy.com/book/nkantp/)
@@ -162,14 +159,12 @@
 - [如何扮演源氏重宝](https://www.ccccenergy.com/book/2bk39c/)
 - [95美国贵族高中模拟](https://www.ccccenergy.com/book/2bk36l/)
 - [五十年代港城日常](https://www.ccccenergy.com/book/2bk355/)
-- [在古代上班的日子](https://www.ccccenergy.com/book/2bk33e/)
 - [全民求生:从小木屋到魔法农场](https://www.ccccenergy.com/book/2bk325/)
 - [卧底后被港岛大小姐缠上了](https://www.ccccenergy.com/book/2bk31c/)
 - [警察，但犯罪大师系统[刑侦]](https://www.ccccenergy.com/book/2bk2p5/)
 - [[诡秘之主]邪神误入塔罗会](https://www.ccccenergy.com/book/2bk2o5/)
 - [幼儿园来了个林大厨[七零]](https://www.ccccenergy.com/book/2bk2lc/)
 - [猫猫也要养家糊口](https://www.ccccenergy.com/book/2bk2h2/)
-- [据说我是神仙下凡](https://www.ccccenergy.com/book/2bk2f6/)
 - [[娱乐圈]过分美丽的她](https://www.ccccenergy.com/book/7i0t8/)
 - [我真不是算命的！[香江]](https://www.ccccenergy.com/book/7i0s6/)
 - [海岛求生：生活玩家种田囤货](https://www.ccccenergy.com/book/7i0m6/)
