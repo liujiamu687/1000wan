@@ -1,21 +1,53 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-08-18 03:23:13
+更新时间：2026-08-21 03:30:49
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
 - [爱阅读小说网](https://www.yuedu788.com/)
 
 ## 最新小说
-- [阴郁路人不想被喜欢](https://www.yuedu788.com/book/1on1qbm/)
-- [给控制狂龙傲天当老婆](https://www.yuedu788.com/book/1on1qb7/)
-- [她是反派的背景板母亲](https://www.yuedu788.com/book/1on1q40/)
+- [男朋友买一送一](https://www.yuedu788.com/book/1on5csm/)
+- [[足球]听克圣的话，成了米兰金童](https://www.yuedu788.com/book/1on5995/)
+- [我与龙傲天寿命共享](https://www.yuedu788.com/book/1on58ug/)
+- [全球进化，而我保持不变](https://www.yuedu788.com/book/1on54uc/)
+- [躲避原书剧情五年后](https://www.yuedu788.com/book/1on54ja/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.yuedu788.com/book/1on4vpq/)
+- [逝水](https://www.yuedu788.com/book/1on4te4/)
+- [可怜的天然呆直男[快穿]](https://www.yuedu788.com/book/1on4t2u/)
+- [我不可能舔一个漂亮捞子](https://www.yuedu788.com/book/1on4sgj/)
+- [沈助理又在隐藏他的超能力](https://www.yuedu788.com/book/1on4n90/)
+- [在民俗惊悚片被诸神庇护](https://www.yuedu788.com/book/1on4mll/)
+- [简单罗曼史](https://www.yuedu788.com/book/1on4m81/)
+- [老公是松散生命体](https://www.yuedu788.com/book/1on4luj/)
+- [微臣怜惜公主](https://www.yuedu788.com/book/1on4kha/)
+- [他要和我谈恋爱](https://www.yuedu788.com/book/1on4c7c/)
+- [亚当斯与韦恩的适配性](https://www.yuedu788.com/book/1on4bk0/)
+- [死遁后成了忍界白月光？](https://www.yuedu788.com/book/1on48ba/)
+- [被小蜘蛛听见心声后](https://www.yuedu788.com/book/1on46df/)
+- [言不由衷](https://www.yuedu788.com/book/1on46d1/)
+- [在魔法世界屯田争霸](https://www.yuedu788.com/book/1on457e/)
+- [[封神]圣人生欲](https://www.yuedu788.com/book/1on44b3/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yuedu788.com/book/1on43jh/)
+- [这谁的沙雕二次元心声！](https://www.yuedu788.com/book/1on438o/)
+- [八零恶毒后妈杀疯了](https://www.yuedu788.com/book/1on4320/)
+- [宇智波的遗产](https://www.yuedu788.com/book/1on42hm/)
+- [娇婚惯养](https://www.yuedu788.com/book/1on41rg/)
+- [啊？我是万人迷？［虫族］](https://www.yuedu788.com/book/1on40vp/)
+- [我司艺人永不塌房](https://www.yuedu788.com/book/1on40lu/)
+- [某柯学的正义伙伴](https://www.yuedu788.com/book/1on3tsf/)
+- [[足球]罗蜜第一志愿](https://www.yuedu788.com/book/1on3tnn/)
+- [井闼山经理每天都被挖墙脚](https://www.yuedu788.com/book/1on3opm/)
+- [拯救世界从扮演反派开始](https://www.yuedu788.com/book/1on1q8j/)
+- [来日方长](https://www.yuedu788.com/book/1on1pnf/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.yuedu788.com/book/1on1piv/)
+- [贝利珠](https://www.yuedu788.com/book/1on1pii/)
 - [死遁后冰山O怀了我的崽](https://www.yuedu788.com/book/1on1p69/)
-- [限制文不是这样的！](https://www.yuedu788.com/book/1on1p4p/)
 - [纯爱宇智波基本恋爱法](https://www.yuedu788.com/book/1on1ojk/)
+- [直男咒术师的限制级游戏](https://www.yuedu788.com/book/1on1no0/)
 - [高嫁之后](https://www.yuedu788.com/book/1on1nit/)
+- [新来的室友令人不爽](https://www.yuedu788.com/book/1on1nej/)
 - [[希腊神话]蛇蛇神生美妙](https://www.yuedu788.com/book/1on1nd9/)
 ## 相关内容
 - [README](/README.md)
