@@ -1,22 +1,54 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-08-18 03:23:56
+更新时间：2026-08-21 03:31:40
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
 - [哲理书客吧](https://www.zheli518.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.zheli518.com/book/4taoq5p/)
+- [[足球]听克圣的话，成了米兰金童](https://www.zheli518.com/book/4taok7k/)
+- [我与龙傲天寿命共享](https://www.zheli518.com/book/4taojiu/)
+- [全球进化，而我保持不变](https://www.zheli518.com/book/4taofkp/)
+- [躲避原书剧情五年后](https://www.zheli518.com/book/4taof5g/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.zheli518.com/book/4tao9i0/)
+- [我不可能舔一个漂亮捞子](https://www.zheli518.com/book/4tao8tj/)
+- [可怜的天然呆直男[快穿]](https://www.zheli518.com/book/4tao74r/)
+- [逝水](https://www.zheli518.com/book/4tao6pg/)
+- [在民俗惊悚片被诸神庇护](https://www.zheli518.com/book/4tao2gi/)
+- [老公是松散生命体](https://www.zheli518.com/book/4tao1qs/)
+- [简单罗曼史](https://www.zheli518.com/book/4tao1d4/)
+- [沈助理又在隐藏他的超能力](https://www.zheli518.com/book/4tao1b8/)
+- [微臣怜惜公主](https://www.zheli518.com/book/4tants1/)
+- [亚当斯与韦恩的适配性](https://www.zheli518.com/book/4tanm4t/)
+- [他要和我谈恋爱](https://www.zheli518.com/book/4tanlut/)
+- [死遁后成了忍界白月光？](https://www.zheli518.com/book/4tank6d/)
+- [被小蜘蛛听见心声后](https://www.zheli518.com/book/4tangro/)
+- [在魔法世界屯田争霸](https://www.zheli518.com/book/4tanfjh/)
+- [[封神]圣人生欲](https://www.zheli518.com/book/4tanfc1/)
+- [言不由衷](https://www.zheli518.com/book/4tanf6o/)
+- [这谁的沙雕二次元心声！](https://www.zheli518.com/book/4taneq0/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.zheli518.com/book/4tanehh/)
+- [八零恶毒后妈杀疯了](https://www.zheli518.com/book/4tane6s/)
+- [娇婚惯养](https://www.zheli518.com/book/4tandf6/)
+- [宇智波的遗产](https://www.zheli518.com/book/4tandek/)
+- [啊？我是万人迷？［虫族］](https://www.zheli518.com/book/4tancau/)
+- [我司艺人永不塌房](https://www.zheli518.com/book/4tanacr/)
+- [[足球]罗蜜第一志愿](https://www.zheli518.com/book/4tan8ir/)
+- [某柯学的正义伙伴](https://www.zheli518.com/book/4tan7fl/)
+- [井闼山经理每天都被挖墙脚](https://www.zheli518.com/book/4tan5sr/)
+- [直男咒术师的限制级游戏](https://www.zheli518.com/book/4tal5a1/)
 - [纯爱宇智波基本恋爱法](https://www.zheli518.com/book/4tal3ts/)
-- [阴郁路人不想被喜欢](https://www.zheli518.com/book/4tal3sm/)
-- [限制文不是这样的！](https://www.zheli518.com/book/4tal3oh/)
+- [拯救世界从扮演反派开始](https://www.zheli518.com/book/4tal3n1/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.zheli518.com/book/4tal3j2/)
 - [死遁后冰山O怀了我的崽](https://www.zheli518.com/book/4tal3h0/)
 - [[希腊神话]蛇蛇神生美妙](https://www.zheli518.com/book/4tal3ge/)
 - [高嫁之后](https://www.zheli518.com/book/4tal3dn/)
-- [给控制狂龙傲天当老婆](https://www.zheli518.com/book/4tal353/)
-- [她是反派的背景板母亲](https://www.zheli518.com/book/4tal2f9/)
+- [来日方长](https://www.zheli518.com/book/4tal3b5/)
+- [新来的室友令人不爽](https://www.zheli518.com/book/4tal2o1/)
+- [贝利珠](https://www.zheli518.com/book/4tal2j7/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1358/index.md)
