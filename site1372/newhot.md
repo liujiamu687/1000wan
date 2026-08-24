@@ -1,20 +1,53 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-08-18 03:21:04
+更新时间：2026-08-21 03:27:56
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
 - [落秋文学网](https://www.wenxue868.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.wenxue868.com/book/rlaqj7/)
+- [[足球]听克圣的话，成了米兰金童](https://www.wenxue868.com/book/rlajkv/)
+- [我与龙傲天寿命共享](https://www.wenxue868.com/book/rlaip9/)
+- [全球进化，而我保持不变](https://www.wenxue868.com/book/rlai3t/)
+- [躲避原书剧情五年后](https://www.wenxue868.com/book/rlags8/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.wenxue868.com/book/rlaang/)
+- [逝水](https://www.wenxue868.com/book/rla9ad/)
+- [可怜的天然呆直男[快穿]](https://www.wenxue868.com/book/rla8sf/)
+- [我不可能舔一个漂亮捞子](https://www.wenxue868.com/book/rla7qe/)
+- [沈助理又在隐藏他的超能力](https://www.wenxue868.com/book/rla3a1/)
+- [在民俗惊悚片被诸神庇护](https://www.wenxue868.com/book/rla295/)
+- [老公是松散生命体](https://www.wenxue868.com/book/rla1v9/)
+- [简单罗曼史](https://www.wenxue868.com/book/rla11m/)
+- [微臣怜惜公主](https://www.wenxue868.com/book/rl9ub5/)
+- [他要和我谈恋爱](https://www.wenxue868.com/book/rl9mro/)
+- [亚当斯与韦恩的适配性](https://www.wenxue868.com/book/rl9mmf/)
+- [死遁后成了忍界白月光？](https://www.wenxue868.com/book/rl9igd/)
+- [被小蜘蛛听见心声后](https://www.wenxue868.com/book/rl9i3s/)
+- [言不由衷](https://www.wenxue868.com/book/rl9hun/)
+- [[封神]圣人生欲](https://www.wenxue868.com/book/rl9gc1/)
+- [在魔法世界屯田争霸](https://www.wenxue868.com/book/rl9g9l/)
+- [八零恶毒后妈杀疯了](https://www.wenxue868.com/book/rl9fct/)
+- [娇婚惯养](https://www.wenxue868.com/book/rl9e64/)
+- [这谁的沙雕二次元心声！](https://www.wenxue868.com/book/rl9dvb/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wenxue868.com/book/rl9dik/)
+- [宇智波的遗产](https://www.wenxue868.com/book/rl9d8u/)
+- [啊？我是万人迷？［虫族］](https://www.wenxue868.com/book/rl9cgh/)
+- [我司艺人永不塌房](https://www.wenxue868.com/book/rl9c08/)
+- [[足球]罗蜜第一志愿](https://www.wenxue868.com/book/rl99b5/)
+- [某柯学的正义伙伴](https://www.wenxue868.com/book/rl9728/)
+- [井闼山经理每天都被挖墙脚](https://www.wenxue868.com/book/rl95pe/)
 - [她是反派的背景板母亲](https://www.wenxue868.com/book/rl75ft/)
+- [贝利珠](https://www.wenxue868.com/book/rl7591/)
 - [死遁后冰山O怀了我的崽](https://www.wenxue868.com/book/rl74te/)
-- [阴郁路人不想被喜欢](https://www.wenxue868.com/book/rl74j0/)
-- [给控制狂龙傲天当老婆](https://www.wenxue868.com/book/rl73t7/)
+- [来日方长](https://www.wenxue868.com/book/rl747k/)
+- [直男咒术师的限制级游戏](https://www.wenxue868.com/book/rl7471/)
 - [纯爱宇智波基本恋爱法](https://www.wenxue868.com/book/rl73ni/)
+- [拯救世界从扮演反派开始](https://www.wenxue868.com/book/rl73f0/)
+- [新来的室友令人不爽](https://www.wenxue868.com/book/rl73et/)
 - [高嫁之后](https://www.wenxue868.com/book/rl737m/)
-- [限制文不是这样的！](https://www.wenxue868.com/book/rl736l/)
 - [[希腊神话]蛇蛇神生美妙](https://www.wenxue868.com/book/rl730a/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.wenxue868.com/book/rl7308/)
 ## 相关内容

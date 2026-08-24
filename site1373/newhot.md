@@ -1,22 +1,55 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-18 03:20:14
+更新时间：2026-08-21 03:26:02
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [泡泡书社](https://www.shushe818.com/)
 
 ## 最新小说
-- [给控制狂龙傲天当老婆](https://www.shushe818.com/book/29b6k9u/)
+- [男朋友买一送一](https://www.shushe818.com/book/29ba6rq/)
+- [我与龙傲天寿命共享](https://www.shushe818.com/book/29ba185/)
+- [[足球]听克圣的话，成了米兰金童](https://www.shushe818.com/book/29ba0tp/)
+- [全球进化，而我保持不变](https://www.shushe818.com/book/29b9vu6/)
+- [躲避原书剧情五年后](https://www.shushe818.com/book/29b9vbj/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.shushe818.com/book/29b9op3/)
+- [逝水](https://www.shushe818.com/book/29b9nak/)
+- [可怜的天然呆直男[快穿]](https://www.shushe818.com/book/29b9mik/)
+- [我不可能舔一个漂亮捞子](https://www.shushe818.com/book/29b9lvm/)
+- [在民俗惊悚片被诸神庇护](https://www.shushe818.com/book/29b9hvu/)
+- [老公是松散生命体](https://www.shushe818.com/book/29b9htf/)
+- [简单罗曼史](https://www.shushe818.com/book/29b9hds/)
+- [沈助理又在隐藏他的超能力](https://www.shushe818.com/book/29b9fq5/)
+- [微臣怜惜公主](https://www.shushe818.com/book/29b9ese/)
+- [亚当斯与韦恩的适配性](https://www.shushe818.com/book/29b9534/)
+- [他要和我谈恋爱](https://www.shushe818.com/book/29b9444/)
+- [死遁后成了忍界白月光？](https://www.shushe818.com/book/29b91iq/)
+- [在魔法世界屯田争霸](https://www.shushe818.com/book/29b8vdu/)
+- [[封神]圣人生欲](https://www.shushe818.com/book/29b8vao/)
+- [被小蜘蛛听见心声后](https://www.shushe818.com/book/29b8ujl/)
+- [言不由衷](https://www.shushe818.com/book/29b8tnu/)
+- [这谁的沙雕二次元心声！](https://www.shushe818.com/book/29b8t9j/)
+- [八零恶毒后妈杀疯了](https://www.shushe818.com/book/29b8t5f/)
+- [娇婚惯养](https://www.shushe818.com/book/29b8shf/)
+- [宇智波的遗产](https://www.shushe818.com/book/29b8rfo/)
+- [啊？我是万人迷？［虫族］](https://www.shushe818.com/book/29b8raa/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shushe818.com/book/29b8r3h/)
+- [我司艺人永不塌房](https://www.shushe818.com/book/29b8pq2/)
+- [某柯学的正义伙伴](https://www.shushe818.com/book/29b8lv6/)
+- [[足球]罗蜜第一志愿](https://www.shushe818.com/book/29b8lkj/)
+- [井闼山经理每天都被挖墙脚](https://www.shushe818.com/book/29b8k87/)
+- [拯救世界从扮演反派开始](https://www.shushe818.com/book/29b6ka6/)
 - [高嫁之后](https://www.shushe818.com/book/29b6k38/)
+- [贝利珠](https://www.shushe818.com/book/29b6jr2/)
+- [直男咒术师的限制级游戏](https://www.shushe818.com/book/29b6jqj/)
 - [她是反派的背景板母亲](https://www.shushe818.com/book/29b6jac/)
-- [限制文不是这样的！](https://www.shushe818.com/book/29b6j82/)
-- [阴郁路人不想被喜欢](https://www.shushe818.com/book/29b6j7m/)
 - [死遁后冰山O怀了我的崽](https://www.shushe818.com/book/29b6j07/)
+- [来日方长](https://www.shushe818.com/book/29b6i24/)
 - [纯爱宇智波基本恋爱法](https://www.shushe818.com/book/29b6hqn/)
 - [[希腊神话]蛇蛇神生美妙](https://www.shushe818.com/book/29b6hlh/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.shushe818.com/book/29b6hf8/)
+- [新来的室友令人不爽](https://www.shushe818.com/book/29b6h69/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1373/index.md)

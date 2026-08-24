@@ -1,20 +1,53 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-08-18 03:21:38
+更新时间：2026-08-21 03:28:42
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
 - [无瑕天涯书库](https://www.wuxia688.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.wuxia688.com/book/2bjpj0v/)
+- [我与龙傲天寿命共享](https://www.wuxia688.com/book/2bjpdv5/)
+- [[足球]听克圣的话，成了米兰金童](https://www.wuxia688.com/book/2bjpdlo/)
+- [全球进化，而我保持不变](https://www.wuxia688.com/book/2bjpava/)
+- [躲避原书剧情五年后](https://www.wuxia688.com/book/2bjp9hn/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.wuxia688.com/book/2bjp5jk/)
+- [可怜的天然呆直男[快穿]](https://www.wuxia688.com/book/2bjp1on/)
+- [我不可能舔一个漂亮捞子](https://www.wuxia688.com/book/2bjp168/)
+- [逝水](https://www.wuxia688.com/book/2bjp0rd/)
+- [在民俗惊悚片被诸神庇护](https://www.wuxia688.com/book/2bjost0/)
+- [老公是松散生命体](https://www.wuxia688.com/book/2bjord5/)
+- [简单罗曼史](https://www.wuxia688.com/book/2bjoquf/)
+- [沈助理又在隐藏他的超能力](https://www.wuxia688.com/book/2bjoq58/)
+- [微臣怜惜公主](https://www.wuxia688.com/book/2bjonss/)
+- [他要和我谈恋爱](https://www.wuxia688.com/book/2bjoh7v/)
+- [亚当斯与韦恩的适配性](https://www.wuxia688.com/book/2bjog1e/)
+- [死遁后成了忍界白月光？](https://www.wuxia688.com/book/2bjobo0/)
+- [在魔法世界屯田争霸](https://www.wuxia688.com/book/2bjoaoq/)
+- [被小蜘蛛听见心声后](https://www.wuxia688.com/book/2bjoan2/)
+- [言不由衷](https://www.wuxia688.com/book/2bjo98m/)
+- [[封神]圣人生欲](https://www.wuxia688.com/book/2bjo8kt/)
+- [宇智波的遗产](https://www.wuxia688.com/book/2bjo7lb/)
+- [八零恶毒后妈杀疯了](https://www.wuxia688.com/book/2bjo7j3/)
+- [啊？我是万人迷？［虫族］](https://www.wuxia688.com/book/2bjo78r/)
+- [娇婚惯养](https://www.wuxia688.com/book/2bjo6qk/)
+- [这谁的沙雕二次元心声！](https://www.wuxia688.com/book/2bjo64q/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wuxia688.com/book/2bjo62h/)
+- [我司艺人永不塌房](https://www.wuxia688.com/book/2bjo2ol/)
+- [某柯学的正义伙伴](https://www.wuxia688.com/book/2bjo286/)
+- [[足球]罗蜜第一志愿](https://www.wuxia688.com/book/2bjo1fd/)
+- [井闼山经理每天都被挖墙脚](https://www.wuxia688.com/book/2bjntbf/)
+- [新来的室友令人不爽](https://www.wuxia688.com/book/2bjlupk/)
 - [她是反派的背景板母亲](https://www.wuxia688.com/book/2bjlu68/)
+- [直男咒术师的限制级游戏](https://www.wuxia688.com/book/2bjltog/)
 - [纯爱宇智波基本恋爱法](https://www.wuxia688.com/book/2bjltmg/)
 - [死遁后冰山O怀了我的崽](https://www.wuxia688.com/book/2bjlt32/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.wuxia688.com/book/2bjlt26/)
-- [给控制狂龙傲天当老婆](https://www.wuxia688.com/book/2bjlst1/)
-- [阴郁路人不想被喜欢](https://www.wuxia688.com/book/2bjlsrm/)
-- [限制文不是这样的！](https://www.wuxia688.com/book/2bjls7l/)
+- [贝利珠](https://www.wuxia688.com/book/2bjlt1f/)
+- [来日方长](https://www.wuxia688.com/book/2bjlsg0/)
+- [拯救世界从扮演反派开始](https://www.wuxia688.com/book/2bjlsds/)
 - [高嫁之后](https://www.wuxia688.com/book/2bjlruh/)
 - [[希腊神话]蛇蛇神生美妙](https://www.wuxia688.com/book/2bjlrtr/)
 ## 相关内容
