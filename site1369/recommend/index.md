@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-08-18 03:21:40
+更新时间：2026-08-21 03:28:54
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
@@ -14,6 +14,16 @@
 - [推荐小说 第4页](/site1369/recommend/4.md)
 - [推荐小说 第5页](/site1369/recommend/5.md)
 - [推荐小说 第6页](/site1369/recommend/6.md)
+- [推荐小说 第7页](/site1369/recommend/7.md)
+- [推荐小说 第8页](/site1369/recommend/8.md)
+- [推荐小说 第9页](/site1369/recommend/9.md)
+- [推荐小说 第10页](/site1369/recommend/10.md)
+- [推荐小说 第11页](/site1369/recommend/11.md)
+- [推荐小说 第12页](/site1369/recommend/12.md)
+- [推荐小说 第13页](/site1369/recommend/13.md)
+- [推荐小说 第14页](/site1369/recommend/14.md)
+- [推荐小说 第15页](/site1369/recommend/15.md)
+- [推荐小说 第16页](/site1369/recommend/16.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1369/index.md)

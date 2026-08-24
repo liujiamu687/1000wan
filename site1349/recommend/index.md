@@ -1,7 +1,7 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-08-18 03:21:03
+更新时间：2026-08-21 03:27:44
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
@@ -15,6 +15,15 @@
 - [推荐小说 第5页](/site1349/recommend/5.md)
 - [推荐小说 第6页](/site1349/recommend/6.md)
 - [推荐小说 第7页](/site1349/recommend/7.md)
+- [推荐小说 第8页](/site1349/recommend/8.md)
+- [推荐小说 第9页](/site1349/recommend/9.md)
+- [推荐小说 第10页](/site1349/recommend/10.md)
+- [推荐小说 第11页](/site1349/recommend/11.md)
+- [推荐小说 第12页](/site1349/recommend/12.md)
+- [推荐小说 第13页](/site1349/recommend/13.md)
+- [推荐小说 第14页](/site1349/recommend/14.md)
+- [推荐小说 第15页](/site1349/recommend/15.md)
+- [推荐小说 第16页](/site1349/recommend/16.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1349/index.md)

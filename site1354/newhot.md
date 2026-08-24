@@ -1,22 +1,54 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-08-18 03:22:55
+更新时间：2026-08-21 03:30:17
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
 
 - [阅读大文学](https://www.yuedu188.com/)
 
 ## 最新小说
-- [阴郁路人不想被喜欢](https://www.yuedu188.com/book/esfb8/)
+- [男朋友买一送一](https://www.yuedu188.com/book/1egpm0h/)
+- [[足球]听克圣的话，成了米兰金童](https://www.yuedu188.com/book/1egpenn/)
+- [我与龙傲天寿命共享](https://www.yuedu188.com/book/1egpdpe/)
+- [躲避原书剧情五年后](https://www.yuedu188.com/book/1egpc7t/)
+- [全球进化，而我保持不变](https://www.yuedu188.com/book/1egp8ki/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.yuedu188.com/book/1egp60s/)
+- [我不可能舔一个漂亮捞子](https://www.yuedu188.com/book/1egp39u/)
+- [逝水](https://www.yuedu188.com/book/1egp2mn/)
+- [可怜的天然呆直男[快穿]](https://www.yuedu188.com/book/1egp21r/)
+- [在民俗惊悚片被诸神庇护](https://www.yuedu188.com/book/4kuqan/)
+- [简单罗曼史](https://www.yuedu188.com/book/4kups7/)
+- [老公是松散生命体](https://www.yuedu188.com/book/4kup6g/)
+- [沈助理又在隐藏他的超能力](https://www.yuedu188.com/book/4kuo0v/)
+- [微臣怜惜公主](https://www.yuedu188.com/book/4kunau/)
+- [亚当斯与韦恩的适配性](https://www.yuedu188.com/book/4kudfi/)
+- [他要和我谈恋爱](https://www.yuedu188.com/book/4kuc10/)
+- [死遁后成了忍界白月光？](https://www.yuedu188.com/book/4ku9f4/)
+- [在魔法世界屯田争霸](https://www.yuedu188.com/book/4ku8km/)
+- [被小蜘蛛听见心声后](https://www.yuedu188.com/book/4ku86f/)
+- [言不由衷](https://www.yuedu188.com/book/4ku7pm/)
+- [[封神]圣人生欲](https://www.yuedu188.com/book/4ku7a2/)
+- [啊？我是万人迷？［虫族］](https://www.yuedu188.com/book/4ku5c2/)
+- [娇婚惯养](https://www.yuedu188.com/book/4ku566/)
+- [八零恶毒后妈杀疯了](https://www.yuedu188.com/book/4ku4tr/)
+- [宇智波的遗产](https://www.yuedu188.com/book/4ku43d/)
+- [这谁的沙雕二次元心声！](https://www.yuedu188.com/book/4ku3nq/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yuedu188.com/book/4ku321/)
+- [我司艺人永不塌房](https://www.yuedu188.com/book/4ku16l/)
+- [[足球]罗蜜第一志愿](https://www.yuedu188.com/book/4ktush/)
+- [某柯学的正义伙伴](https://www.yuedu188.com/book/4kttkk/)
+- [井闼山经理每天都被挖墙脚](https://www.yuedu188.com/book/4ktqpd/)
+- [拯救世界从扮演反派开始](https://www.yuedu188.com/book/esf7u/)
 - [[希腊神话]蛇蛇神生美妙](https://www.yuedu188.com/book/eset2/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.yuedu188.com/book/esehm/)
 - [纯爱宇智波基本恋爱法](https://www.yuedu188.com/book/eseba/)
 - [高嫁之后](https://www.yuedu188.com/book/ese49/)
-- [给控制狂龙傲天当老婆](https://www.yuedu188.com/book/esdkr/)
+- [直男咒术师的限制级游戏](https://www.yuedu188.com/book/ese05/)
+- [来日方长](https://www.yuedu188.com/book/esdud/)
 - [死遁后冰山O怀了我的崽](https://www.yuedu188.com/book/esdje/)
-- [她是反派的背景板母亲](https://www.yuedu188.com/book/esdht/)
-- [限制文不是这样的！](https://www.yuedu188.com/book/1fkj5/)
+- [贝利珠](https://www.yuedu188.com/book/1fkqp/)
+- [新来的室友令人不爽](https://www.yuedu188.com/book/1fkmp/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1354/index.md)

@@ -1,22 +1,55 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-08-18 03:12:53
+更新时间：2026-08-21 03:15:55
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [读者电子书](https://www.duzhe368.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.duzhe368.com/book/3hftddk/)
+- [[足球]听克圣的话，成了米兰金童](https://www.duzhe368.com/book/3hft8n4/)
+- [我与龙傲天寿命共享](https://www.duzhe368.com/book/3hft7jd/)
+- [躲避原书剧情五年后](https://www.duzhe368.com/book/3hft680/)
+- [全球进化，而我保持不变](https://www.duzhe368.com/book/3hft66k/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.duzhe368.com/book/3hfsu05/)
+- [逝水](https://www.duzhe368.com/book/3hfstj3/)
+- [可怜的天然呆直男[快穿]](https://www.duzhe368.com/book/3hfst4a/)
+- [我不可能舔一个漂亮捞子](https://www.duzhe368.com/book/3hfsr4g/)
+- [简单罗曼史](https://www.duzhe368.com/book/3hfsn3b/)
+- [在民俗惊悚片被诸神庇护](https://www.duzhe368.com/book/3hfsmqe/)
+- [老公是松散生命体](https://www.duzhe368.com/book/3hfsm47/)
+- [沈助理又在隐藏他的超能力](https://www.duzhe368.com/book/3hfslur/)
+- [微臣怜惜公主](https://www.duzhe368.com/book/3hfsi6a/)
+- [他要和我谈恋爱](https://www.duzhe368.com/book/3hfsbvb/)
+- [亚当斯与韦恩的适配性](https://www.duzhe368.com/book/3hfsbp1/)
+- [死遁后成了忍界白月光？](https://www.duzhe368.com/book/3hfs80f/)
+- [言不由衷](https://www.duzhe368.com/book/3hfs496/)
+- [[封神]圣人生欲](https://www.duzhe368.com/book/3hfs47l/)
+- [被小蜘蛛听见心声后](https://www.duzhe368.com/book/3hfs42e/)
+- [在魔法世界屯田争霸](https://www.duzhe368.com/book/3hfs3eq/)
+- [这谁的沙雕二次元心声！](https://www.duzhe368.com/book/3hfs36c/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.duzhe368.com/book/3hfs225/)
+- [啊？我是万人迷？［虫族］](https://www.duzhe368.com/book/3hfs1jm/)
+- [娇婚惯养](https://www.duzhe368.com/book/3hfs16c/)
+- [宇智波的遗产](https://www.duzhe368.com/book/3hfs12v/)
+- [八零恶毒后妈杀疯了](https://www.duzhe368.com/book/3hfs0rp/)
+- [我司艺人永不塌房](https://www.duzhe368.com/book/3hfs02r/)
+- [[足球]罗蜜第一志愿](https://www.duzhe368.com/book/3hfrsmk/)
+- [某柯学的正义伙伴](https://www.duzhe368.com/book/3hfrrvq/)
+- [井闼山经理每天都被挖墙脚](https://www.duzhe368.com/book/3hfro51/)
 - [纯爱宇智波基本恋爱法](https://www.duzhe368.com/book/3hfppfi/)
-- [给控制狂龙傲天当老婆](https://www.duzhe368.com/book/3hfppf3/)
-- [限制文不是这样的！](https://www.duzhe368.com/book/3hfpp40/)
-- [阴郁路人不想被喜欢](https://www.duzhe368.com/book/3hfpooo/)
+- [新来的室友令人不爽](https://www.duzhe368.com/book/3hfpp12/)
+- [来日方长](https://www.duzhe368.com/book/3hfpomt/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.duzhe368.com/book/3hfpojq/)
+- [贝利珠](https://www.duzhe368.com/book/3hfpnvk/)
 - [她是反派的背景板母亲](https://www.duzhe368.com/book/3hfpnv2/)
+- [拯救世界从扮演反派开始](https://www.duzhe368.com/book/3hfpnoc/)
 - [死遁后冰山O怀了我的崽](https://www.duzhe368.com/book/3hfpn7c/)
 - [高嫁之后](https://www.duzhe368.com/book/3hfpn4m/)
 - [[希腊神话]蛇蛇神生美妙](https://www.duzhe368.com/book/3hfpn38/)
+- [直男咒术师的限制级游戏](https://www.duzhe368.com/book/3hfpmre/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1352/index.md)

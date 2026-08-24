@@ -1,22 +1,55 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-18 03:22:02
+更新时间：2026-08-21 03:29:26
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [泡泡中文小说](https://www.xiaoshuo288.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.xiaoshuo288.com/book/dm20sf/)
+- [[足球]听克圣的话，成了米兰金童](https://www.xiaoshuo288.com/book/dm1t1v/)
+- [我与龙傲天寿命共享](https://www.xiaoshuo288.com/book/dm1t0u/)
+- [躲避原书剧情五年后](https://www.xiaoshuo288.com/book/dm1p9c/)
+- [全球进化，而我保持不变](https://www.xiaoshuo288.com/book/dm1p40/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.xiaoshuo288.com/book/dm1il5/)
+- [我不可能舔一个漂亮捞子](https://www.xiaoshuo288.com/book/dm1gtt/)
+- [可怜的天然呆直男[快穿]](https://www.xiaoshuo288.com/book/dm1fpi/)
+- [逝水](https://www.xiaoshuo288.com/book/dm1fkc/)
+- [简单罗曼史](https://www.xiaoshuo288.com/book/dm1alo/)
+- [沈助理又在隐藏他的超能力](https://www.xiaoshuo288.com/book/dm1a9c/)
+- [老公是松散生命体](https://www.xiaoshuo288.com/book/dm1a7p/)
+- [在民俗惊悚片被诸神庇护](https://www.xiaoshuo288.com/book/dm1a5f/)
+- [微臣怜惜公主](https://www.xiaoshuo288.com/book/dm16u0/)
+- [亚当斯与韦恩的适配性](https://www.xiaoshuo288.com/book/dm105g/)
+- [他要和我谈恋爱](https://www.xiaoshuo288.com/book/dm0tkl/)
+- [死遁后成了忍界白月光？](https://www.xiaoshuo288.com/book/dm0qts/)
+- [[封神]圣人生欲](https://www.xiaoshuo288.com/book/dm0os3/)
+- [在魔法世界屯田争霸](https://www.xiaoshuo288.com/book/dm0ome/)
+- [言不由衷](https://www.xiaoshuo288.com/book/dm0oke/)
+- [被小蜘蛛听见心声后](https://www.xiaoshuo288.com/book/dm0o6s/)
+- [这谁的沙雕二次元心声！](https://www.xiaoshuo288.com/book/dm0ni5/)
+- [宇智波的遗产](https://www.xiaoshuo288.com/book/dm0m6o/)
+- [八零恶毒后妈杀疯了](https://www.xiaoshuo288.com/book/dm0ls5/)
+- [啊？我是万人迷？［虫族］](https://www.xiaoshuo288.com/book/dm0lp8/)
+- [娇婚惯养](https://www.xiaoshuo288.com/book/dm0l84/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.xiaoshuo288.com/book/dm0kqu/)
+- [我司艺人永不塌房](https://www.xiaoshuo288.com/book/dm0ino/)
+- [[足球]罗蜜第一志愿](https://www.xiaoshuo288.com/book/dm0gvk/)
+- [某柯学的正义伙伴](https://www.xiaoshuo288.com/book/dm0f04/)
+- [井闼山经理每天都被挖墙脚](https://www.xiaoshuo288.com/book/dm0e9l/)
 - [她是反派的背景板母亲](https://www.xiaoshuo288.com/book/dlue67/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.xiaoshuo288.com/book/dlue4u/)
 - [高嫁之后](https://www.xiaoshuo288.com/book/dlue3j/)
-- [限制文不是这样的！](https://www.xiaoshuo288.com/book/dludp7/)
+- [来日方长](https://www.xiaoshuo288.com/book/dlue01/)
 - [死遁后冰山O怀了我的崽](https://www.xiaoshuo288.com/book/dludgf/)
-- [给控制狂龙傲天当老婆](https://www.xiaoshuo288.com/book/dlude3/)
 - [[希腊神话]蛇蛇神生美妙](https://www.xiaoshuo288.com/book/dludas/)
-- [阴郁路人不想被喜欢](https://www.xiaoshuo288.com/book/dlucq7/)
+- [贝利珠](https://www.xiaoshuo288.com/book/dlucrg/)
+- [拯救世界从扮演反派开始](https://www.xiaoshuo288.com/book/dlucg4/)
+- [直男咒术师的限制级游戏](https://www.xiaoshuo288.com/book/dlucec/)
 - [纯爱宇智波基本恋爱法](https://www.xiaoshuo288.com/book/dlucak/)
+- [新来的室友令人不爽](https://www.xiaoshuo288.com/book/dluc9h/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1351/index.md)

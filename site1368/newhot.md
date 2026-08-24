@@ -1,20 +1,53 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-08-18 03:20:19
+更新时间：2026-08-21 03:26:39
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [探秘书院](https://www.tanmi918.com/)
 
 ## 最新小说
-- [限制文不是这样的！](https://www.tanmi918.com/book/80qvaf9/)
+- [男朋友买一送一](https://www.tanmi918.com/book/80r2viq/)
+- [我与龙傲天寿命共享](https://www.tanmi918.com/book/80r2r3f/)
+- [[足球]听克圣的话，成了米兰金童](https://www.tanmi918.com/book/80r2okk/)
+- [全球进化，而我保持不变](https://www.tanmi918.com/book/80r2o3h/)
+- [躲避原书剧情五年后](https://www.tanmi918.com/book/80r2nsi/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.tanmi918.com/book/80r2h66/)
+- [逝水](https://www.tanmi918.com/book/80r2fac/)
+- [可怜的天然呆直男[快穿]](https://www.tanmi918.com/book/80r2epn/)
+- [我不可能舔一个漂亮捞子](https://www.tanmi918.com/book/80r2e47/)
+- [在民俗惊悚片被诸神庇护](https://www.tanmi918.com/book/80r2966/)
+- [沈助理又在隐藏他的超能力](https://www.tanmi918.com/book/80r28co/)
+- [老公是松散生命体](https://www.tanmi918.com/book/80r27r9/)
+- [简单罗曼史](https://www.tanmi918.com/book/80r26lo/)
+- [微臣怜惜公主](https://www.tanmi918.com/book/80r26hk/)
+- [他要和我谈恋爱](https://www.tanmi918.com/book/80r1tqk/)
+- [亚当斯与韦恩的适配性](https://www.tanmi918.com/book/80r1tam/)
+- [死遁后成了忍界白月光？](https://www.tanmi918.com/book/80r1oln/)
+- [言不由衷](https://www.tanmi918.com/book/80r1nhm/)
+- [在魔法世界屯田争霸](https://www.tanmi918.com/book/80r1n1f/)
+- [被小蜘蛛听见心声后](https://www.tanmi918.com/book/80r1m25/)
+- [[封神]圣人生欲](https://www.tanmi918.com/book/80r1l4q/)
+- [娇婚惯养](https://www.tanmi918.com/book/80r1klg/)
+- [啊？我是万人迷？［虫族］](https://www.tanmi918.com/book/80r1kbf/)
+- [这谁的沙雕二次元心声！](https://www.tanmi918.com/book/80r1jhn/)
+- [宇智波的遗产](https://www.tanmi918.com/book/80r1j52/)
+- [八零恶毒后妈杀疯了](https://www.tanmi918.com/book/80r1it3/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.tanmi918.com/book/80r1ijf/)
+- [我司艺人永不塌房](https://www.tanmi918.com/book/80r1hsk/)
+- [[足球]罗蜜第一志愿](https://www.tanmi918.com/book/80r1f5n/)
+- [某柯学的正义伙伴](https://www.tanmi918.com/book/80r1ccn/)
+- [井闼山经理每天都被挖墙脚](https://www.tanmi918.com/book/80r1ao6/)
+- [贝利珠](https://www.tanmi918.com/book/80qvbhv/)
+- [来日方长](https://www.tanmi918.com/book/80qvb56/)
 - [死遁后冰山O怀了我的崽](https://www.tanmi918.com/book/80qvac1/)
 - [[希腊神话]蛇蛇神生美妙](https://www.tanmi918.com/book/80qva0g/)
-- [阴郁路人不想被喜欢](https://www.tanmi918.com/book/80qv9pr/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.tanmi918.com/book/80qv9np/)
+- [新来的室友令人不爽](https://www.tanmi918.com/book/80qv977/)
 - [纯爱宇智波基本恋爱法](https://www.tanmi918.com/book/80qv954/)
-- [给控制狂龙傲天当老婆](https://www.tanmi918.com/book/80qv932/)
+- [拯救世界从扮演反派开始](https://www.tanmi918.com/book/80qv915/)
+- [直男咒术师的限制级游戏](https://www.tanmi918.com/book/80qv8ut/)
 - [高嫁之后](https://www.tanmi918.com/book/80qv8l7/)
 - [她是反派的背景板母亲](https://www.tanmi918.com/book/80qv8gk/)
 ## 相关内容
