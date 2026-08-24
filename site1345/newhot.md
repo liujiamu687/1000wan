@@ -1,22 +1,55 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-08-18 03:20:18
+更新时间：2026-08-21 03:26:27
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
 - [探秘笔神阁小说](https://www.tanmi818.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.tanmi818.com/book/977djan/)
+- [[足球]听克圣的话，成了米兰金童](https://www.tanmi818.com/book/977de3f/)
+- [我与龙傲天寿命共享](https://www.tanmi818.com/book/977dcs7/)
+- [躲避原书剧情五年后](https://www.tanmi818.com/book/977db2t/)
+- [全球进化，而我保持不变](https://www.tanmi818.com/book/977dal0/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.tanmi818.com/book/977d5og/)
+- [我不可能舔一个漂亮捞子](https://www.tanmi818.com/book/977d2u8/)
+- [可怜的天然呆直男[快穿]](https://www.tanmi818.com/book/977d2m7/)
+- [逝水](https://www.tanmi818.com/book/977d24k/)
+- [沈助理又在隐藏他的超能力](https://www.tanmi818.com/book/977ct1c/)
+- [老公是松散生命体](https://www.tanmi818.com/book/977crkg/)
+- [在民俗惊悚片被诸神庇护](https://www.tanmi818.com/book/977cr9l/)
+- [简单罗曼史](https://www.tanmi818.com/book/977cr4b/)
+- [微臣怜惜公主](https://www.tanmi818.com/book/977coa6/)
+- [亚当斯与韦恩的适配性](https://www.tanmi818.com/book/977ci03/)
+- [他要和我谈恋爱](https://www.tanmi818.com/book/977chjc/)
+- [死遁后成了忍界白月光？](https://www.tanmi818.com/book/977cesk/)
+- [被小蜘蛛听见心声后](https://www.tanmi818.com/book/977cbfi/)
+- [言不由衷](https://www.tanmi818.com/book/977caeh/)
+- [在魔法世界屯田争霸](https://www.tanmi818.com/book/977caaf/)
+- [[封神]圣人生欲](https://www.tanmi818.com/book/977ca89/)
+- [啊？我是万人迷？［虫族］](https://www.tanmi818.com/book/977c9dh/)
+- [娇婚惯养](https://www.tanmi818.com/book/977c8q3/)
+- [八零恶毒后妈杀疯了](https://www.tanmi818.com/book/977c8lm/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.tanmi818.com/book/977c8ar/)
+- [这谁的沙雕二次元心声！](https://www.tanmi818.com/book/977c73o/)
+- [宇智波的遗产](https://www.tanmi818.com/book/977c6sb/)
+- [我司艺人永不塌房](https://www.tanmi818.com/book/977c4ic/)
+- [某柯学的正义伙伴](https://www.tanmi818.com/book/977c3lc/)
+- [[足球]罗蜜第一志愿](https://www.tanmi818.com/book/977c3he/)
+- [井闼山经理每天都被挖墙脚](https://www.tanmi818.com/book/977bvmt/)
+- [新来的室友令人不爽](https://www.tanmi818.com/book/977a05g/)
 - [死遁后冰山O怀了我的崽](https://www.tanmi818.com/book/977a001/)
+- [来日方长](https://www.tanmi818.com/book/9779vnr/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.tanmi818.com/book/9779vl2/)
 - [高嫁之后](https://www.tanmi818.com/book/9779vfp/)
 - [纯爱宇智波基本恋爱法](https://www.tanmi818.com/book/9779vct/)
-- [阴郁路人不想被喜欢](https://www.tanmi818.com/book/9779v88/)
-- [给控制狂龙傲天当老婆](https://www.tanmi818.com/book/9779v6d/)
-- [限制文不是这样的！](https://www.tanmi818.com/book/9779v4d/)
 - [[希腊神话]蛇蛇神生美妙](https://www.tanmi818.com/book/9779u87/)
+- [直男咒术师的限制级游戏](https://www.tanmi818.com/book/9779u7v/)
 - [她是反派的背景板母亲](https://www.tanmi818.com/book/9779u2n/)
+- [拯救世界从扮演反派开始](https://www.tanmi818.com/book/9779u18/)
+- [贝利珠](https://www.tanmi818.com/book/9779t4j/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1345/index.md)

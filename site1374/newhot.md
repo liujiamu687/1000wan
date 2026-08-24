@@ -1,22 +1,55 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-08-18 03:15:37
+更新时间：2026-08-21 03:19:09
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
 - [看居中文网](https://www.kanju688.com/)
 
 ## 最新小说
-- [给控制狂龙傲天当老婆](https://www.kanju688.com/book/paqq19/)
+- [男朋友买一送一](https://www.kanju688.com/book/paucm1/)
+- [我与龙傲天寿命共享](https://www.kanju688.com/book/pau9gj/)
+- [[足球]听克圣的话，成了米兰金童](https://www.kanju688.com/book/pau84e/)
+- [躲避原书剧情五年后](https://www.kanju688.com/book/pau48q/)
+- [全球进化，而我保持不变](https://www.kanju688.com/book/pau41d/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.kanju688.com/book/pau07f/)
+- [可怜的天然呆直男[快穿]](https://www.kanju688.com/book/patt5f/)
+- [我不可能舔一个漂亮捞子](https://www.kanju688.com/book/patsgp/)
+- [逝水](https://www.kanju688.com/book/pats28/)
+- [在民俗惊悚片被诸神庇护](https://www.kanju688.com/book/patnsn/)
+- [老公是松散生命体](https://www.kanju688.com/book/patn3r/)
+- [沈助理又在隐藏他的超能力](https://www.kanju688.com/book/patm0j/)
+- [简单罗曼史](https://www.kanju688.com/book/patlcn/)
+- [微臣怜惜公主](https://www.kanju688.com/book/patk2j/)
+- [他要和我谈恋爱](https://www.kanju688.com/book/pat9rr/)
+- [亚当斯与韦恩的适配性](https://www.kanju688.com/book/pat9nd/)
+- [死遁后成了忍界白月光？](https://www.kanju688.com/book/pat74v/)
+- [[封神]圣人生欲](https://www.kanju688.com/book/pat5t6/)
+- [言不由衷](https://www.kanju688.com/book/pat5a9/)
+- [在魔法世界屯田争霸](https://www.kanju688.com/book/pat589/)
+- [被小蜘蛛听见心声后](https://www.kanju688.com/book/pat3j4/)
+- [啊？我是万人迷？［虫族］](https://www.kanju688.com/book/pat2k0/)
+- [这谁的沙雕二次元心声！](https://www.kanju688.com/book/pat2jo/)
+- [宇智波的遗产](https://www.kanju688.com/book/pat1it/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kanju688.com/book/pat1gd/)
+- [八零恶毒后妈杀疯了](https://www.kanju688.com/book/pat0vn/)
+- [娇婚惯养](https://www.kanju688.com/book/pat0l9/)
+- [我司艺人永不塌房](https://www.kanju688.com/book/pasuqc/)
+- [[足球]罗蜜第一志愿](https://www.kanju688.com/book/passkf/)
+- [某柯学的正义伙伴](https://www.kanju688.com/book/pasr9i/)
+- [井闼山经理每天都被挖墙脚](https://www.kanju688.com/book/pasqn0/)
 - [她是反派的背景板母亲](https://www.kanju688.com/book/paqpqh/)
 - [死遁后冰山O怀了我的崽](https://www.kanju688.com/book/paqplc/)
-- [限制文不是这样的！](https://www.kanju688.com/book/paqpiu/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.kanju688.com/book/paqpe7/)
+- [直男咒术师的限制级游戏](https://www.kanju688.com/book/paqpcv/)
 - [纯爱宇智波基本恋爱法](https://www.kanju688.com/book/paqose/)
+- [拯救世界从扮演反派开始](https://www.kanju688.com/book/paqojc/)
+- [新来的室友令人不爽](https://www.kanju688.com/book/paqo2s/)
 - [高嫁之后](https://www.kanju688.com/book/paqnv0/)
+- [贝利珠](https://www.kanju688.com/book/paqnjv/)
 - [[希腊神话]蛇蛇神生美妙](https://www.kanju688.com/book/paqnfg/)
-- [阴郁路人不想被喜欢](https://www.kanju688.com/book/paqnd0/)
+- [来日方长](https://www.kanju688.com/book/paqndm/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1374/index.md)
