@@ -1,22 +1,55 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-08-18 03:14:03
+更新时间：2026-08-21 03:17:25
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
 - [故事来书吧](https://www.gushi688.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.gushi688.com/book/511vffi/)
+- [[足球]听克圣的话，成了米兰金童](https://www.gushi688.com/book/511v9sv/)
+- [我与龙傲天寿命共享](https://www.gushi688.com/book/511v8lf/)
+- [全球进化，而我保持不变](https://www.gushi688.com/book/511v79m/)
+- [躲避原书剧情五年后](https://www.gushi688.com/book/511v65s/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.gushi688.com/book/511v1k5/)
+- [可怜的天然呆直男[快穿]](https://www.gushi688.com/book/511utv7/)
+- [逝水](https://www.gushi688.com/book/511utqb/)
+- [我不可能舔一个漂亮捞子](https://www.gushi688.com/book/511usqm/)
+- [老公是松散生命体](https://www.gushi688.com/book/511upkt/)
+- [简单罗曼史](https://www.gushi688.com/book/511uo0h/)
+- [沈助理又在隐藏他的超能力](https://www.gushi688.com/book/511un2e/)
+- [在民俗惊悚片被诸神庇护](https://www.gushi688.com/book/511umpk/)
+- [微臣怜惜公主](https://www.gushi688.com/book/511ul4b/)
+- [他要和我谈恋爱](https://www.gushi688.com/book/511uc3g/)
+- [亚当斯与韦恩的适配性](https://www.gushi688.com/book/511ubfe/)
+- [死遁后成了忍界白月光？](https://www.gushi688.com/book/511u9ii/)
+- [在魔法世界屯田争霸](https://www.gushi688.com/book/511u7vr/)
+- [[封神]圣人生欲](https://www.gushi688.com/book/511u7nr/)
+- [言不由衷](https://www.gushi688.com/book/511u7ai/)
+- [被小蜘蛛听见心声后](https://www.gushi688.com/book/511u6es/)
+- [宇智波的遗产](https://www.gushi688.com/book/511u4q7/)
+- [娇婚惯养](https://www.gushi688.com/book/511u4n1/)
+- [啊？我是万人迷？［虫族］](https://www.gushi688.com/book/511u42r/)
+- [这谁的沙雕二次元心声！](https://www.gushi688.com/book/511u3ms/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.gushi688.com/book/511u3de/)
+- [八零恶毒后妈杀疯了](https://www.gushi688.com/book/511u36a/)
+- [我司艺人永不塌房](https://www.gushi688.com/book/511tvqq/)
+- [[足球]罗蜜第一志愿](https://www.gushi688.com/book/511tuoc/)
+- [某柯学的正义伙伴](https://www.gushi688.com/book/511tugh/)
+- [井闼山经理每天都被挖墙脚](https://www.gushi688.com/book/511tpuo/)
 - [纯爱宇智波基本恋爱法](https://www.gushi688.com/book/511rrob/)
-- [限制文不是这样的！](https://www.gushi688.com/book/511rr58/)
+- [新来的室友令人不爽](https://www.gushi688.com/book/511rr65/)
+- [贝利珠](https://www.gushi688.com/book/511rr0a/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.gushi688.com/book/511rqu1/)
 - [高嫁之后](https://www.gushi688.com/book/511rqrm/)
 - [[希腊神话]蛇蛇神生美妙](https://www.gushi688.com/book/511rqge/)
+- [直男咒术师的限制级游戏](https://www.gushi688.com/book/511rq5e/)
 - [死遁后冰山O怀了我的崽](https://www.gushi688.com/book/511rq1n/)
-- [阴郁路人不想被喜欢](https://www.gushi688.com/book/511rphc/)
-- [给控制狂龙傲天当老婆](https://www.gushi688.com/book/511rpad/)
+- [来日方长](https://www.gushi688.com/book/511rpca/)
 - [她是反派的背景板母亲](https://www.gushi688.com/book/511rp51/)
+- [拯救世界从扮演反派开始](https://www.gushi688.com/book/511roqc/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1347/index.md)

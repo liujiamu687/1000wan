@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-18 03:14:24
+更新时间：2026-08-21 03:17:57
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -9,45 +9,35 @@
 
 ## 最新小说
 - [高嫁之后](https://www.hzciic.com/book/1sjvhhn/)
-- [限制文不是这样的！](https://www.hzciic.com/book/1sjvhg2/)
+- [直男咒术师的限制级游戏](https://www.hzciic.com/book/1sjvhgi/)
 - [从异世界穿回来后](https://www.hzciic.com/book/1sjvhf3/)
-- [给控制狂龙傲天当老婆](https://www.hzciic.com/book/1sjvher/)
-- [阴郁路人不想被喜欢](https://www.hzciic.com/book/1sjvhee/)
 - [[希腊神话]蛇蛇神生美妙](https://www.hzciic.com/book/1sjvhdp/)
 - [纯爱宇智波基本恋爱法](https://www.hzciic.com/book/1sjvhd6/)
-- [我的老公是暴君](https://www.hzciic.com/book/1sjudnj/)
-- [如何嫁给当朝首辅](https://www.hzciic.com/book/1sjsnpq/)
-- [漂亮小瞎子捡到直男龙傲天](https://www.hzciic.com/book/1sjs2eb/)
-- [穿到法国，但超越者公务员](https://www.hzciic.com/book/1sjs247/)
+- [啊？我是万人迷？［虫族］](https://www.hzciic.com/book/1sjsnuv/)
+- [某柯学的正义伙伴](https://www.hzciic.com/book/1sjsnuu/)
+- [男朋友买一送一](https://www.hzciic.com/book/1sjse35/)
 - [全球进化，而我保持不变](https://www.hzciic.com/book/1sjrr1d/)
 - [她是反派的背景板母亲](https://www.hzciic.com/book/6227qh/)
-- [若清晨所见之蓝](https://www.hzciic.com/book/6223gr/)
 - [沈助理又在隐藏他的超能力](https://www.hzciic.com/book/6221fh/)
-- [误标记隔壁阿姨O之后](https://www.hzciic.com/book/621v31/)
+- [新来的室友令人不爽](https://www.hzciic.com/book/6221e7/)
 - [死遁后冰山O怀了我的崽](https://www.hzciic.com/book/621t9r/)
-- [可是你也砂锅我](https://www.hzciic.com/book/621sdq/)
-- [[足球]可以来利物浦踢后腰吗](https://www.hzciic.com/book/621s0k/)
-- [[崩铁]绝灭大君跳槽巡海游侠的一百种方式](https://www.hzciic.com/book/621mmn/)
+- [逝水](https://www.hzciic.com/book/621nnp/)
+- [娇婚惯养](https://www.hzciic.com/book/621ii4/)
 - [宇智波的遗产](https://www.hzciic.com/book/621g54/)
-- [阴阳师也可以打网球](https://www.hzciic.com/book/621d2f/)
-- [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.hzciic.com/book/621cv2/)
-- [你也没死？](https://www.hzciic.com/book/6218kb/)
+- [简单罗曼史](https://www.hzciic.com/book/621a3d/)
 - [我与龙傲天寿命共享](https://www.hzciic.com/book/6218cj/)
-- [老婆是恋爱脑女配](https://www.hzciic.com/book/62170b/)
-- [小丧尸也要被迫求生吗](https://www.hzciic.com/book/621707/)
 - [这谁的沙雕二次元心声！](https://www.hzciic.com/book/6216m6/)
 - [死遁后成了忍界白月光？](https://www.hzciic.com/book/6215mi/)
-- [[秦]公子扶苏](https://www.hzciic.com/book/6215a7/)
 - [老公是松散生命体](https://www.hzciic.com/book/6213e5/)
 - [在魔法世界屯田争霸](https://www.hzciic.com/book/6211ho/)
-- [东北土豪娇养小甜心后](https://www.hzciic.com/book/6210cv/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.hzciic.com/book/620sb5/)
+- [拯救世界从扮演反派开始](https://www.hzciic.com/book/620ope/)
 - [[足球]罗蜜第一志愿](https://www.hzciic.com/book/620nqt/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.hzciic.com/book/620mqd/)
 - [八零恶毒后妈杀疯了](https://www.hzciic.com/book/620iku/)
 - [在民俗惊悚片被诸神庇护](https://www.hzciic.com/book/620be2/)
-- [哥你不能不要我](https://www.hzciic.com/book/6203sr/)
-- [被奇犽告白以后](https://www.hzciic.com/book/jcq22/)
+- [来日方长](https://www.hzciic.com/book/jcpki/)
+- [贝利珠](https://www.hzciic.com/book/66ku/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1287/index.md)

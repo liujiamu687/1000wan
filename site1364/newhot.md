@@ -1,22 +1,55 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-08-18 03:16:02
+更新时间：2026-08-21 03:20:04
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
 - [科幻读书](https://www.kehuan918.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.kehuan918.com/book/1d54jj5/)
+- [我与龙傲天寿命共享](https://www.kehuan918.com/book/1d54fdu/)
+- [[足球]听克圣的话，成了米兰金童](https://www.kehuan918.com/book/1d54dgv/)
+- [全球进化，而我保持不变](https://www.kehuan918.com/book/1d54afj/)
+- [躲避原书剧情五年后](https://www.kehuan918.com/book/1d54a56/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.kehuan918.com/book/1d54446/)
+- [逝水](https://www.kehuan918.com/book/1d542na/)
+- [我不可能舔一个漂亮捞子](https://www.kehuan918.com/book/1d541jp/)
+- [可怜的天然呆直男[快穿]](https://www.kehuan918.com/book/1d541a8/)
+- [在民俗惊悚片被诸神庇护](https://www.kehuan918.com/book/1d53ssm/)
+- [沈助理又在隐藏他的超能力](https://www.kehuan918.com/book/1d53se7/)
+- [老公是松散生命体](https://www.kehuan918.com/book/1d53s5q/)
+- [简单罗曼史](https://www.kehuan918.com/book/1d53rbm/)
+- [微臣怜惜公主](https://www.kehuan918.com/book/1d53qtl/)
+- [他要和我谈恋爱](https://www.kehuan918.com/book/1d53gfj/)
+- [亚当斯与韦恩的适配性](https://www.kehuan918.com/book/1d53gd1/)
+- [死遁后成了忍界白月光？](https://www.kehuan918.com/book/1d53emr/)
+- [在魔法世界屯田争霸](https://www.kehuan918.com/book/1d53c2f/)
+- [被小蜘蛛听见心声后](https://www.kehuan918.com/book/1d53b97/)
+- [[封神]圣人生欲](https://www.kehuan918.com/book/1d53b3v/)
+- [言不由衷](https://www.kehuan918.com/book/1d53a29/)
+- [这谁的沙雕二次元心声！](https://www.kehuan918.com/book/1d538ij/)
+- [宇智波的遗产](https://www.kehuan918.com/book/1d538f9/)
+- [娇婚惯养](https://www.kehuan918.com/book/1d537m0/)
+- [八零恶毒后妈杀疯了](https://www.kehuan918.com/book/1d537go/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kehuan918.com/book/1d537c8/)
+- [啊？我是万人迷？［虫族］](https://www.kehuan918.com/book/1d5374g/)
+- [我司艺人永不塌房](https://www.kehuan918.com/book/1d53403/)
+- [[足球]罗蜜第一志愿](https://www.kehuan918.com/book/1d532is/)
+- [某柯学的正义伙伴](https://www.kehuan918.com/book/1d531t8/)
+- [井闼山经理每天都被挖墙脚](https://www.kehuan918.com/book/1d52ub8/)
 - [高嫁之后](https://www.kehuan918.com/book/1d510ak/)
+- [贝利珠](https://www.kehuan918.com/book/1d5103p/)
+- [直男咒术师的限制级游戏](https://www.kehuan918.com/book/1d50vp0/)
 - [纯爱宇智波基本恋爱法](https://www.kehuan918.com/book/1d50voa/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.kehuan918.com/book/1d50vje/)
 - [她是反派的背景板母亲](https://www.kehuan918.com/book/1d50uvi/)
 - [[希腊神话]蛇蛇神生美妙](https://www.kehuan918.com/book/1d50uoc/)
-- [给控制狂龙傲天当老婆](https://www.kehuan918.com/book/1d50ud8/)
-- [阴郁路人不想被喜欢](https://www.kehuan918.com/book/1d50u95/)
+- [来日方长](https://www.kehuan918.com/book/1d50unn/)
+- [新来的室友令人不爽](https://www.kehuan918.com/book/1d50uil/)
 - [死遁后冰山O怀了我的崽](https://www.kehuan918.com/book/1d50u8n/)
-- [限制文不是这样的！](https://www.kehuan918.com/book/1d50tmp/)
+- [拯救世界从扮演反派开始](https://www.kehuan918.com/book/1d50tm8/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1364/index.md)

@@ -1,22 +1,55 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-08-18 03:19:35
+更新时间：2026-08-21 03:24:40
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
 
 - [生活文学小说](https://www.shenghuo988.com/)
 
 ## 最新小说
-- [给控制狂龙傲天当老婆](https://www.shenghuo988.com/book/86g5lqb/)
+- [男朋友买一送一](https://www.shenghuo988.com/book/86g9b33/)
+- [我与龙傲天寿命共享](https://www.shenghuo988.com/book/86g94io/)
+- [[足球]听克圣的话，成了米兰金童](https://www.shenghuo988.com/book/86g93it/)
+- [躲避原书剧情五年后](https://www.shenghuo988.com/book/86g9323/)
+- [全球进化，而我保持不变](https://www.shenghuo988.com/book/86g91ev/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.shenghuo988.com/book/86g8s3l/)
+- [逝水](https://www.shenghuo988.com/book/86g8q72/)
+- [可怜的天然呆直男[快穿]](https://www.shenghuo988.com/book/86g8od2/)
+- [我不可能舔一个漂亮捞子](https://www.shenghuo988.com/book/86g8oco/)
+- [在民俗惊悚片被诸神庇护](https://www.shenghuo988.com/book/86g8jrd/)
+- [沈助理又在隐藏他的超能力](https://www.shenghuo988.com/book/86g8j10/)
+- [老公是松散生命体](https://www.shenghuo988.com/book/86g8huu/)
+- [简单罗曼史](https://www.shenghuo988.com/book/86g8hl0/)
+- [微臣怜惜公主](https://www.shenghuo988.com/book/86g8gl5/)
+- [他要和我谈恋爱](https://www.shenghuo988.com/book/86g86fq/)
+- [亚当斯与韦恩的适配性](https://www.shenghuo988.com/book/86g868s/)
+- [死遁后成了忍界白月光？](https://www.shenghuo988.com/book/86g8481/)
+- [[封神]圣人生欲](https://www.shenghuo988.com/book/86g82aq/)
+- [被小蜘蛛听见心声后](https://www.shenghuo988.com/book/86g80tb/)
+- [在魔法世界屯田争霸](https://www.shenghuo988.com/book/86g80nb/)
+- [言不由衷](https://www.shenghuo988.com/book/86g80bb/)
+- [啊？我是万人迷？［虫族］](https://www.shenghuo988.com/book/86g7vbr/)
+- [八零恶毒后妈杀疯了](https://www.shenghuo988.com/book/86g7vbp/)
+- [这谁的沙雕二次元心声！](https://www.shenghuo988.com/book/86g7uj9/)
+- [娇婚惯养](https://www.shenghuo988.com/book/86g7u16/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shenghuo988.com/book/86g7ts3/)
+- [宇智波的遗产](https://www.shenghuo988.com/book/86g7t35/)
+- [我司艺人永不塌房](https://www.shenghuo988.com/book/86g7rer/)
+- [某柯学的正义伙伴](https://www.shenghuo988.com/book/86g7pt6/)
+- [[足球]罗蜜第一志愿](https://www.shenghuo988.com/book/86g7n9p/)
+- [井闼山经理每天都被挖墙脚](https://www.shenghuo988.com/book/86g7kh7/)
+- [贝利珠](https://www.shenghuo988.com/book/86g5mhc/)
+- [拯救世界从扮演反派开始](https://www.shenghuo988.com/book/86g5lv3/)
+- [来日方长](https://www.shenghuo988.com/book/86g5lti/)
 - [[希腊神话]蛇蛇神生美妙](https://www.shenghuo988.com/book/86g5ljn/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.shenghuo988.com/book/86g5lek/)
 - [纯爱宇智波基本恋爱法](https://www.shenghuo988.com/book/86g5lcf/)
+- [直男咒术师的限制级游戏](https://www.shenghuo988.com/book/86g5l2b/)
+- [新来的室友令人不爽](https://www.shenghuo988.com/book/86g5kls/)
 - [高嫁之后](https://www.shenghuo988.com/book/86g5kds/)
 - [她是反派的背景板母亲](https://www.shenghuo988.com/book/86g5kcp/)
-- [阴郁路人不想被喜欢](https://www.shenghuo988.com/book/86g5k7b/)
 - [死遁后冰山O怀了我的崽](https://www.shenghuo988.com/book/86g5jh6/)
-- [限制文不是这样的！](https://www.shenghuo988.com/book/86g5jgh/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1360/index.md)
