@@ -1,22 +1,55 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-18 03:20:16
+更新时间：2026-08-21 03:26:14
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [书香小说网](https://www.shuxiang368.com/)
 
 ## 最新小说
-- [阴郁路人不想被喜欢](https://www.shuxiang368.com/book/3qkimqb/)
+- [男朋友买一送一](https://www.shuxiang368.com/book/3qkm9jh/)
+- [[足球]听克圣的话，成了米兰金童](https://www.shuxiang368.com/book/3qkm5g4/)
+- [我与龙傲天寿命共享](https://www.shuxiang368.com/book/3qkm3tf/)
+- [全球进化，而我保持不变](https://www.shuxiang368.com/book/3qkm240/)
+- [躲避原书剧情五年后](https://www.shuxiang368.com/book/3qkm0gj/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.shuxiang368.com/book/3qklraj/)
+- [我不可能舔一个漂亮捞子](https://www.shuxiang368.com/book/3qklq97/)
+- [可怜的天然呆直男[快穿]](https://www.shuxiang368.com/book/3qklp58/)
+- [逝水](https://www.shuxiang368.com/book/3qklnnr/)
+- [简单罗曼史](https://www.shuxiang368.com/book/3qklkg5/)
+- [沈助理又在隐藏他的超能力](https://www.shuxiang368.com/book/3qklitk/)
+- [在民俗惊悚片被诸神庇护](https://www.shuxiang368.com/book/3qkli4g/)
+- [老公是松散生命体](https://www.shuxiang368.com/book/3qklhtf/)
+- [微臣怜惜公主](https://www.shuxiang368.com/book/3qklgrh/)
+- [亚当斯与韦恩的适配性](https://www.shuxiang368.com/book/3qkl74u/)
+- [他要和我谈恋爱](https://www.shuxiang368.com/book/3qkl63f/)
+- [死遁后成了忍界白月光？](https://www.shuxiang368.com/book/3qkl4m9/)
+- [在魔法世界屯田争霸](https://www.shuxiang368.com/book/3qkl2gi/)
+- [言不由衷](https://www.shuxiang368.com/book/3qkl27u/)
+- [[封神]圣人生欲](https://www.shuxiang368.com/book/3qkl21q/)
+- [被小蜘蛛听见心声后](https://www.shuxiang368.com/book/3qkl21i/)
+- [娇婚惯养](https://www.shuxiang368.com/book/3qkkvs1/)
+- [这谁的沙雕二次元心声！](https://www.shuxiang368.com/book/3qkkvar/)
+- [八零恶毒后妈杀疯了](https://www.shuxiang368.com/book/3qkktu8/)
+- [宇智波的遗产](https://www.shuxiang368.com/book/3qkktm8/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shuxiang368.com/book/3qkktis/)
+- [啊？我是万人迷？［虫族］](https://www.shuxiang368.com/book/3qkktbk/)
+- [我司艺人永不塌房](https://www.shuxiang368.com/book/3qkkrq4/)
+- [某柯学的正义伙伴](https://www.shuxiang368.com/book/3qkknt4/)
+- [[足球]罗蜜第一志愿](https://www.shuxiang368.com/book/3qkkns0/)
+- [井闼山经理每天都被挖墙脚](https://www.shuxiang368.com/book/3qkklfa/)
+- [拯救世界从扮演反派开始](https://www.shuxiang368.com/book/3qkimo1/)
 - [高嫁之后](https://www.shuxiang368.com/book/3qkilrq/)
+- [直男咒术师的限制级游戏](https://www.shuxiang368.com/book/3qkilev/)
+- [来日方长](https://www.shuxiang368.com/book/3qkileh/)
 - [纯爱宇智波基本恋爱法](https://www.shuxiang368.com/book/3qkil3u/)
+- [贝利珠](https://www.shuxiang368.com/book/3qkikus/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.shuxiang368.com/book/3qkikrn/)
 - [她是反派的背景板母亲](https://www.shuxiang368.com/book/3qkik96/)
 - [[希腊神话]蛇蛇神生美妙](https://www.shuxiang368.com/book/3qkik48/)
-- [给控制狂龙傲天当老婆](https://www.shuxiang368.com/book/3qkijve/)
+- [新来的室友令人不爽](https://www.shuxiang368.com/book/3qkik1n/)
 - [死遁后冰山O怀了我的崽](https://www.shuxiang368.com/book/3qkijr4/)
-- [限制文不是这样的！](https://www.shuxiang368.com/book/3qkijmj/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1357/index.md)
