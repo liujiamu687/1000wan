@@ -1,19 +1,52 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-08-18 03:11:24
+更新时间：2026-08-21 03:14:16
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。
 
 - [笔架中文小说](https://www.bijia188.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.bijia188.com/book/6tojqip/)
+- [我与龙傲天寿命共享](https://www.bijia188.com/book/6tojkhj/)
+- [[足球]听克圣的话，成了米兰金童](https://www.bijia188.com/book/6tojjbg/)
+- [全球进化，而我保持不变](https://www.bijia188.com/book/6tojgoo/)
+- [躲避原书剧情五年后](https://www.bijia188.com/book/6tojgct/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.bijia188.com/book/6tojane/)
+- [逝水](https://www.bijia188.com/book/6toj787/)
+- [可怜的天然呆直男[快穿]](https://www.bijia188.com/book/6toj74h/)
+- [我不可能舔一个漂亮捞子](https://www.bijia188.com/book/6toj6mb/)
+- [沈助理又在隐藏他的超能力](https://www.bijia188.com/book/6toj34k/)
+- [在民俗惊悚片被诸神庇护](https://www.bijia188.com/book/6toj33m/)
+- [简单罗曼史](https://www.bijia188.com/book/6toj1el/)
+- [老公是松散生命体](https://www.bijia188.com/book/6toj1cc/)
+- [微臣怜惜公主](https://www.bijia188.com/book/6toiuvi/)
+- [亚当斯与韦恩的适配性](https://www.bijia188.com/book/6toinhp/)
+- [他要和我谈恋爱](https://www.bijia188.com/book/6toilql/)
+- [死遁后成了忍界白月光？](https://www.bijia188.com/book/6toijvd/)
+- [[封神]圣人生欲](https://www.bijia188.com/book/6toih01/)
+- [被小蜘蛛听见心声后](https://www.bijia188.com/book/6toig6t/)
+- [言不由衷](https://www.bijia188.com/book/6toifvn/)
+- [在魔法世界屯田争霸](https://www.bijia188.com/book/6toif4n/)
+- [这谁的沙雕二次元心声！](https://www.bijia188.com/book/6toienn/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.bijia188.com/book/6toiecr/)
+- [娇婚惯养](https://www.bijia188.com/book/6toidpl/)
+- [八零恶毒后妈杀疯了](https://www.bijia188.com/book/6toidef/)
+- [宇智波的遗产](https://www.bijia188.com/book/6toicvb/)
+- [啊？我是万人迷？［虫族］](https://www.bijia188.com/book/6toictk/)
+- [我司艺人永不塌房](https://www.bijia188.com/book/6toi9db/)
+- [[足球]罗蜜第一志愿](https://www.bijia188.com/book/6toi8dr/)
+- [某柯学的正义伙伴](https://www.bijia188.com/book/6toi7cc/)
+- [井闼山经理每天都被挖墙脚](https://www.bijia188.com/book/6toi5d5/)
 - [死遁后冰山O怀了我的崽](https://www.bijia188.com/book/6tog5a5/)
 - [纯爱宇智波基本恋爱法](https://www.bijia188.com/book/6tog53m/)
-- [限制文不是这样的！](https://www.bijia188.com/book/6tog53j/)
-- [给控制狂龙傲天当老婆](https://www.bijia188.com/book/6tog4rv/)
-- [阴郁路人不想被喜欢](https://www.bijia188.com/book/6tog4mo/)
+- [贝利珠](https://www.bijia188.com/book/6tog4nt/)
 - [高嫁之后](https://www.bijia188.com/book/6tog42v/)
+- [新来的室友令人不爽](https://www.bijia188.com/book/6tog407/)
+- [拯救世界从扮演反派开始](https://www.bijia188.com/book/6tog3g3/)
+- [来日方长](https://www.bijia188.com/book/6tog3es/)
+- [直男咒术师的限制级游戏](https://www.bijia188.com/book/6tog31j/)
 - [她是反派的背景板母亲](https://www.bijia188.com/book/6tog2t2/)
 - [[希腊神话]蛇蛇神生美妙](https://www.bijia188.com/book/6tog2rj/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.bijia188.com/book/6tog2jp/)

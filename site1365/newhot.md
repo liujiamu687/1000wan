@@ -1,22 +1,55 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-08-18 03:19:50
+更新时间：2026-08-21 03:25:06
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
 - [书城读书网](https://www.shucheng168.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.shucheng168.com/book/47fnc7o/)
+- [我与龙傲天寿命共享](https://www.shucheng168.com/book/47fn8ca/)
+- [[足球]听克圣的话，成了米兰金童](https://www.shucheng168.com/book/47fn7k9/)
+- [躲避原书剧情五年后](https://www.shucheng168.com/book/47fn42s/)
+- [全球进化，而我保持不变](https://www.shucheng168.com/book/47fn3kj/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.shucheng168.com/book/47fmtkq/)
+- [逝水](https://www.shucheng168.com/book/47fmrss/)
+- [我不可能舔一个漂亮捞子](https://www.shucheng168.com/book/47fmr5e/)
+- [可怜的天然呆直男[快穿]](https://www.shucheng168.com/book/47fmqfg/)
+- [老公是松散生命体](https://www.shucheng168.com/book/47fmm2g/)
+- [在民俗惊悚片被诸神庇护](https://www.shucheng168.com/book/47fmlvc/)
+- [简单罗曼史](https://www.shucheng168.com/book/47fmlra/)
+- [沈助理又在隐藏他的超能力](https://www.shucheng168.com/book/47fmked/)
+- [微臣怜惜公主](https://www.shucheng168.com/book/47fmj5u/)
+- [亚当斯与韦恩的适配性](https://www.shucheng168.com/book/47fma1i/)
+- [他要和我谈恋爱](https://www.shucheng168.com/book/47fm8nh/)
+- [死遁后成了忍界白月光？](https://www.shucheng168.com/book/47fm7jf/)
+- [被小蜘蛛听见心声后](https://www.shucheng168.com/book/47fm58k/)
+- [在魔法世界屯田争霸](https://www.shucheng168.com/book/47fm382/)
+- [[封神]圣人生欲](https://www.shucheng168.com/book/47fm2va/)
+- [言不由衷](https://www.shucheng168.com/book/47fm2sj/)
+- [八零恶毒后妈杀疯了](https://www.shucheng168.com/book/47fm1s5/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shucheng168.com/book/47fm0nq/)
+- [啊？我是万人迷？［虫族］](https://www.shucheng168.com/book/47fm07p/)
+- [娇婚惯养](https://www.shucheng168.com/book/47fm05k/)
+- [宇智波的遗产](https://www.shucheng168.com/book/47fm04n/)
+- [这谁的沙雕二次元心声！](https://www.shucheng168.com/book/47flvpj/)
+- [我司艺人永不塌房](https://www.shucheng168.com/book/47flu4f/)
+- [某柯学的正义伙伴](https://www.shucheng168.com/book/47flqqn/)
+- [[足球]罗蜜第一志愿](https://www.shucheng168.com/book/47flqfn/)
+- [井闼山经理每天都被挖墙脚](https://www.shucheng168.com/book/47fln3k/)
 - [[希腊神话]蛇蛇神生美妙](https://www.shucheng168.com/book/47fjote/)
-- [阴郁路人不想被喜欢](https://www.shucheng168.com/book/47fjo3m/)
+- [直男咒术师的限制级游戏](https://www.shucheng168.com/book/47fjonv/)
+- [新来的室友令人不爽](https://www.shucheng168.com/book/47fjo4r/)
+- [拯救世界从扮演反派开始](https://www.shucheng168.com/book/47fjo1o/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.shucheng168.com/book/47fjnru/)
 - [高嫁之后](https://www.shucheng168.com/book/47fjnna/)
 - [死遁后冰山O怀了我的崽](https://www.shucheng168.com/book/47fjnck/)
 - [纯爱宇智波基本恋爱法](https://www.shucheng168.com/book/47fjn9g/)
-- [给控制狂龙傲天当老婆](https://www.shucheng168.com/book/47fjn83/)
+- [贝利珠](https://www.shucheng168.com/book/47fjmsa/)
 - [她是反派的背景板母亲](https://www.shucheng168.com/book/47fjmhs/)
-- [限制文不是这样的！](https://www.shucheng168.com/book/47fjmac/)
+- [来日方长](https://www.shucheng168.com/book/47fjmdf/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1365/index.md)

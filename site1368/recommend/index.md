@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-08-18 03:20:19
+更新时间：2026-08-21 03:26:39
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -14,6 +14,16 @@
 - [推荐小说 第4页](/site1368/recommend/4.md)
 - [推荐小说 第5页](/site1368/recommend/5.md)
 - [推荐小说 第6页](/site1368/recommend/6.md)
+- [推荐小说 第7页](/site1368/recommend/7.md)
+- [推荐小说 第8页](/site1368/recommend/8.md)
+- [推荐小说 第9页](/site1368/recommend/9.md)
+- [推荐小说 第10页](/site1368/recommend/10.md)
+- [推荐小说 第11页](/site1368/recommend/11.md)
+- [推荐小说 第12页](/site1368/recommend/12.md)
+- [推荐小说 第13页](/site1368/recommend/13.md)
+- [推荐小说 第14页](/site1368/recommend/14.md)
+- [推荐小说 第15页](/site1368/recommend/15.md)
+- [推荐小说 第16页](/site1368/recommend/16.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1368/index.md)

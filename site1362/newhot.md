@@ -1,20 +1,53 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-08-18 03:17:56
+更新时间：2026-08-21 03:22:09
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
 - [漫话乐文小说](https://www.manhua958.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.manhua958.com/book/17savft/)
+- [我与龙傲天寿命共享](https://www.manhua958.com/book/17saqt2/)
+- [[足球]听克圣的话，成了米兰金童](https://www.manhua958.com/book/17saqn0/)
+- [躲避原书剧情五年后](https://www.manhua958.com/book/17saoav/)
+- [全球进化，而我保持不变](https://www.manhua958.com/book/17samdd/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.manhua958.com/book/17sagkq/)
+- [逝水](https://www.manhua958.com/book/17saf8l/)
+- [我不可能舔一个漂亮捞子](https://www.manhua958.com/book/17saf33/)
+- [可怜的天然呆直男[快穿]](https://www.manhua958.com/book/17saee8/)
+- [在民俗惊悚片被诸神庇护](https://www.manhua958.com/book/17sa8oq/)
+- [简单罗曼史](https://www.manhua958.com/book/17sa8nu/)
+- [老公是松散生命体](https://www.manhua958.com/book/17sa7li/)
+- [沈助理又在隐藏他的超能力](https://www.manhua958.com/book/17sa7k6/)
+- [微臣怜惜公主](https://www.manhua958.com/book/17sa6dq/)
+- [亚当斯与韦恩的适配性](https://www.manhua958.com/book/17s9u40/)
+- [他要和我谈恋爱](https://www.manhua958.com/book/17s9tgc/)
+- [死遁后成了忍界白月光？](https://www.manhua958.com/book/17s9rfr/)
+- [言不由衷](https://www.manhua958.com/book/17s9o9b/)
+- [被小蜘蛛听见心声后](https://www.manhua958.com/book/17s9nt2/)
+- [在魔法世界屯田争霸](https://www.manhua958.com/book/17s9nbi/)
+- [[封神]圣人生欲](https://www.manhua958.com/book/17s9mi8/)
+- [娇婚惯养](https://www.manhua958.com/book/17s9kub/)
+- [宇智波的遗产](https://www.manhua958.com/book/17s9kke/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.manhua958.com/book/17s9jhj/)
+- [啊？我是万人迷？［虫族］](https://www.manhua958.com/book/17s9jfb/)
+- [八零恶毒后妈杀疯了](https://www.manhua958.com/book/17s9j88/)
+- [这谁的沙雕二次元心声！](https://www.manhua958.com/book/17s9j4e/)
+- [我司艺人永不塌房](https://www.manhua958.com/book/17s9hse/)
+- [[足球]罗蜜第一志愿](https://www.manhua958.com/book/17s9f9o/)
+- [某柯学的正义伙伴](https://www.manhua958.com/book/17s9ei1/)
+- [井闼山经理每天都被挖墙脚](https://www.manhua958.com/book/17s9b3r/)
+- [直男咒术师的限制级游戏](https://www.manhua958.com/book/17s7cjd/)
 - [[希腊神话]蛇蛇神生美妙](https://www.manhua958.com/book/17s7cdl/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.manhua958.com/book/17s7c2p/)
-- [给控制狂龙傲天当老婆](https://www.manhua958.com/book/17s7bsk/)
-- [限制文不是这样的！](https://www.manhua958.com/book/17s7bfm/)
+- [拯救世界从扮演反派开始](https://www.manhua958.com/book/17s7bg5/)
 - [她是反派的背景板母亲](https://www.manhua958.com/book/17s7b6r/)
+- [贝利珠](https://www.manhua958.com/book/17s7b5o/)
+- [新来的室友令人不爽](https://www.manhua958.com/book/17s7as4/)
 - [纯爱宇智波基本恋爱法](https://www.manhua958.com/book/17s7ar2/)
-- [阴郁路人不想被喜欢](https://www.manhua958.com/book/17s7aft/)
+- [来日方长](https://www.manhua958.com/book/17s7aqs/)
 - [死遁后冰山O怀了我的崽](https://www.manhua958.com/book/17s7a1b/)
 - [高嫁之后](https://www.manhua958.com/book/17s79n9/)
 ## 相关内容
