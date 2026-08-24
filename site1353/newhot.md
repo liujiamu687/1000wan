@@ -1,22 +1,55 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-18 03:20:13
+更新时间：2026-08-21 03:25:50
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
 - [书社1687小说免费](https://www.shushe1687.com/)
 
 ## 最新小说
+- [男朋友买一送一](https://www.shushe1687.com/book/489fbrp/)
+- [[足球]听克圣的话，成了米兰金童](https://www.shushe1687.com/book/489f7bi/)
+- [我与龙傲天寿命共享](https://www.shushe1687.com/book/489f5hj/)
+- [全球进化，而我保持不变](https://www.shushe1687.com/book/489f4at/)
+- [躲避原书剧情五年后](https://www.shushe1687.com/book/489f3go/)
+- [阴郁残疾炮灰被万人迷后[快穿]](https://www.shushe1687.com/book/489esfk/)
+- [逝水](https://www.shushe1687.com/book/489erao/)
+- [可怜的天然呆直男[快穿]](https://www.shushe1687.com/book/489eq4v/)
+- [我不可能舔一个漂亮捞子](https://www.shushe1687.com/book/489epv2/)
+- [沈助理又在隐藏他的超能力](https://www.shushe1687.com/book/489em6a/)
+- [简单罗曼史](https://www.shushe1687.com/book/489em3v/)
+- [在民俗惊悚片被诸神庇护](https://www.shushe1687.com/book/489elb7/)
+- [老公是松散生命体](https://www.shushe1687.com/book/489ekhh/)
+- [微臣怜惜公主](https://www.shushe1687.com/book/489eiie/)
+- [亚当斯与韦恩的适配性](https://www.shushe1687.com/book/489e8qh/)
+- [他要和我谈恋爱](https://www.shushe1687.com/book/489e8j8/)
+- [死遁后成了忍界白月光？](https://www.shushe1687.com/book/489e72s/)
+- [在魔法世界屯田争霸](https://www.shushe1687.com/book/489e48e/)
+- [[封神]圣人生欲](https://www.shushe1687.com/book/489e3op/)
+- [言不由衷](https://www.shushe1687.com/book/489e3b7/)
+- [被小蜘蛛听见心声后](https://www.shushe1687.com/book/489e2d5/)
+- [这谁的沙雕二次元心声！](https://www.shushe1687.com/book/489e1lo/)
+- [娇婚惯养](https://www.shushe1687.com/book/489e1kv/)
+- [啊？我是万人迷？［虫族］](https://www.shushe1687.com/book/489e1dj/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shushe1687.com/book/489e119/)
+- [宇智波的遗产](https://www.shushe1687.com/book/489dvoj/)
+- [八零恶毒后妈杀疯了](https://www.shushe1687.com/book/489dvo8/)
+- [我司艺人永不塌房](https://www.shushe1687.com/book/489du35/)
+- [[足球]罗蜜第一志愿](https://www.shushe1687.com/book/489dppr/)
+- [某柯学的正义伙伴](https://www.shushe1687.com/book/489dpaj/)
+- [井闼山经理每天都被挖墙脚](https://www.shushe1687.com/book/489donc/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.shushe1687.com/book/489bnrm/)
 - [[希腊神话]蛇蛇神生美妙](https://www.shushe1687.com/book/489bno4/)
 - [她是反派的背景板母亲](https://www.shushe1687.com/book/489bngs/)
+- [直男咒术师的限制级游戏](https://www.shushe1687.com/book/489bnc9/)
+- [贝利珠](https://www.shushe1687.com/book/489bn8b/)
 - [高嫁之后](https://www.shushe1687.com/book/489bn41/)
 - [死遁后冰山O怀了我的崽](https://www.shushe1687.com/book/489bmqm/)
-- [给控制狂龙傲天当老婆](https://www.shushe1687.com/book/489bmja/)
+- [拯救世界从扮演反派开始](https://www.shushe1687.com/book/489bmpl/)
 - [纯爱宇智波基本恋爱法](https://www.shushe1687.com/book/489blvd/)
-- [限制文不是这样的！](https://www.shushe1687.com/book/489bltm/)
-- [阴郁路人不想被喜欢](https://www.shushe1687.com/book/489bljo/)
+- [来日方长](https://www.shushe1687.com/book/489ble6/)
+- [新来的室友令人不爽](https://www.shushe1687.com/book/489blab/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1353/index.md)
