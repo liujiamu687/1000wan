@@ -1,43 +1,36 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-08-21 03:16:54
+更新时间：2026-08-25 03:19:50
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
-- [直男咒术师的限制级游戏](https://www.gushi1314.com/book/8m9ju1p/)
+- [[封神]圣人生欲](https://www.gushi1314.com/book/8m9ju4p/)
+- [夺友妻（女尊）](https://www.gushi1314.com/book/8m9ju4d/)
+- [他要和我谈恋爱](https://www.gushi1314.com/book/8m9ju3s/)
+- [你，后室管理员](https://www.gushi1314.com/book/8m9ju36/)
+- [星际团宠小人鱼](https://www.gushi1314.com/book/8m9ju2l/)
+- [高调装神，猥琐发育](https://www.gushi1314.com/book/8m9ju2f/)
 - [[希腊神话]蛇蛇神生美妙](https://www.gushi1314.com/book/8m9ju07/)
-- [从异世界穿回来后](https://www.gushi1314.com/book/8m9jtuv/)
 - [高嫁之后](https://www.gushi1314.com/book/8m9jtu2/)
 - [纯爱宇智波基本恋爱法](https://www.gushi1314.com/book/8m9jtta/)
 - [某柯学的正义伙伴](https://www.gushi1314.com/book/8m9h4g7/)
-- [啊？我是万人迷？［虫族］](https://www.gushi1314.com/book/8m9h4d4/)
-- [男朋友买一送一](https://www.gushi1314.com/book/8m9gq8p/)
-- [全球进化，而我保持不变](https://www.gushi1314.com/book/8m9g7m3/)
-- [她是反派的背景板母亲](https://www.gushi1314.com/book/rqk9q7/)
-- [沈助理又在隐藏他的超能力](https://www.gushi1314.com/book/rqk36j/)
-- [新来的室友令人不爽](https://www.gushi1314.com/book/rqk2e6/)
-- [死遁后冰山O怀了我的崽](https://www.gushi1314.com/book/rqjupm/)
-- [逝水](https://www.gushi1314.com/book/rqjpgj/)
-- [娇婚惯养](https://www.gushi1314.com/book/rqjkfs/)
-- [宇智波的遗产](https://www.gushi1314.com/book/rqjiml/)
-- [我与龙傲天寿命共享](https://www.gushi1314.com/book/rqjanf/)
+- [伪装纨绔，怎么成了名相](https://www.gushi1314.com/book/rqjhnu/)
+- [[足球]最佳前锋](https://www.gushi1314.com/book/rqjh80/)
 - [这谁的沙雕二次元心声！](https://www.gushi1314.com/book/rqj9pb/)
-- [死遁后成了忍界白月光？](https://www.gushi1314.com/book/rqj96b/)
 - [简单罗曼史](https://www.gushi1314.com/book/rqj7ki/)
 - [老公是松散生命体](https://www.gushi1314.com/book/rqj719/)
+- [一枝枝怨](https://www.gushi1314.com/book/rqj6j9/)
 - [在魔法世界屯田争霸](https://www.gushi1314.com/book/rqivm1/)
 - [[足球]罗蜜第一志愿](https://www.gushi1314.com/book/rqirav/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.gushi1314.com/book/rqiqi7/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.gushi1314.com/book/rqiors/)
 - [拯救世界从扮演反派开始](https://www.gushi1314.com/book/rqim81/)
-- [八零恶毒后妈杀疯了](https://www.gushi1314.com/book/rqikao/)
+- [和前女友的心上人he了](https://www.gushi1314.com/book/rqij4r/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi1314.com/book/rqict0/)
-- [来日方长](https://www.gushi1314.com/book/2p1qht/)
-- [贝利珠](https://www.gushi1314.com/book/2p1psd/)
+- [哥你不能不要我](https://www.gushi1314.com/book/rqi56o/)
+- [被奇犽告白以后](https://www.gushi1314.com/book/2p1pgi/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1320/index.md)
