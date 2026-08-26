@@ -1,43 +1,36 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-21 03:17:57
+更新时间：2026-08-25 03:20:52
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.hzciic.com/)
 
 ## 最新小说
+- [你，后室管理员](https://www.hzciic.com/book/1sjvhkr/)
+- [星际团宠小人鱼](https://www.hzciic.com/book/1sjvhjj/)
+- [夺友妻（女尊）](https://www.hzciic.com/book/1sjvhja/)
+- [他要和我谈恋爱](https://www.hzciic.com/book/1sjvhj6/)
+- [[封神]圣人生欲](https://www.hzciic.com/book/1sjvhiu/)
+- [高调装神，猥琐发育](https://www.hzciic.com/book/1sjvhid/)
 - [高嫁之后](https://www.hzciic.com/book/1sjvhhn/)
-- [直男咒术师的限制级游戏](https://www.hzciic.com/book/1sjvhgi/)
-- [从异世界穿回来后](https://www.hzciic.com/book/1sjvhf3/)
 - [[希腊神话]蛇蛇神生美妙](https://www.hzciic.com/book/1sjvhdp/)
 - [纯爱宇智波基本恋爱法](https://www.hzciic.com/book/1sjvhd6/)
-- [啊？我是万人迷？［虫族］](https://www.hzciic.com/book/1sjsnuv/)
 - [某柯学的正义伙伴](https://www.hzciic.com/book/1sjsnuu/)
-- [男朋友买一送一](https://www.hzciic.com/book/1sjse35/)
-- [全球进化，而我保持不变](https://www.hzciic.com/book/1sjrr1d/)
-- [她是反派的背景板母亲](https://www.hzciic.com/book/6227qh/)
-- [沈助理又在隐藏他的超能力](https://www.hzciic.com/book/6221fh/)
-- [新来的室友令人不爽](https://www.hzciic.com/book/6221e7/)
-- [死遁后冰山O怀了我的崽](https://www.hzciic.com/book/621t9r/)
-- [逝水](https://www.hzciic.com/book/621nnp/)
-- [娇婚惯养](https://www.hzciic.com/book/621ii4/)
-- [宇智波的遗产](https://www.hzciic.com/book/621g54/)
+- [伪装纨绔，怎么成了名相](https://www.hzciic.com/book/621hjd/)
+- [[足球]最佳前锋](https://www.hzciic.com/book/621f8f/)
 - [简单罗曼史](https://www.hzciic.com/book/621a3d/)
-- [我与龙傲天寿命共享](https://www.hzciic.com/book/6218cj/)
 - [这谁的沙雕二次元心声！](https://www.hzciic.com/book/6216m6/)
-- [死遁后成了忍界白月光？](https://www.hzciic.com/book/6215mi/)
+- [一枝枝怨](https://www.hzciic.com/book/62157n/)
 - [老公是松散生命体](https://www.hzciic.com/book/6213e5/)
 - [在魔法世界屯田争霸](https://www.hzciic.com/book/6211ho/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.hzciic.com/book/620sb5/)
 - [拯救世界从扮演反派开始](https://www.hzciic.com/book/620ope/)
 - [[足球]罗蜜第一志愿](https://www.hzciic.com/book/620nqt/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.hzciic.com/book/620mqd/)
-- [八零恶毒后妈杀疯了](https://www.hzciic.com/book/620iku/)
+- [和前女友的心上人he了](https://www.hzciic.com/book/620i86/)
 - [在民俗惊悚片被诸神庇护](https://www.hzciic.com/book/620be2/)
-- [来日方长](https://www.hzciic.com/book/jcpki/)
-- [贝利珠](https://www.hzciic.com/book/66ku/)
+- [哥你不能不要我](https://www.hzciic.com/book/6203sr/)
+- [被奇犽告白以后](https://www.hzciic.com/book/jcq22/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1287/index.md)
