@@ -1,43 +1,36 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-08-21 03:25:30
+更新时间：2026-08-25 03:28:55
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
 - [书旗小说网](https://www.shuqi687.com/)
 
 ## 最新小说
+- [星际团宠小人鱼](https://www.shuqi687.com/book/8vsmj8b/)
+- [你，后室管理员](https://www.shuqi687.com/book/8vsmj82/)
+- [夺友妻（女尊）](https://www.shuqi687.com/book/8vsmj7c/)
+- [他要和我谈恋爱](https://www.shuqi687.com/book/8vsmj6n/)
+- [[封神]圣人生欲](https://www.shuqi687.com/book/8vsmj6h/)
+- [高调装神，猥琐发育](https://www.shuqi687.com/book/8vsmj6e/)
 - [[希腊神话]蛇蛇神生美妙](https://www.shuqi687.com/book/8vsmj5o/)
-- [直男咒术师的限制级游戏](https://www.shuqi687.com/book/8vsmj4f/)
-- [从异世界穿回来后](https://www.shuqi687.com/book/8vsmj2t/)
 - [纯爱宇智波基本恋爱法](https://www.shuqi687.com/book/8vsmj2d/)
 - [高嫁之后](https://www.shuqi687.com/book/8vsmj1p/)
 - [某柯学的正义伙伴](https://www.shuqi687.com/book/8vsjq8f/)
-- [啊？我是万人迷？［虫族］](https://www.shuqi687.com/book/8vsjq2l/)
-- [男朋友买一送一](https://www.shuqi687.com/book/8vsjcuf/)
-- [全球进化，而我保持不变](https://www.shuqi687.com/book/spauf2/)
-- [她是反派的背景板母亲](https://www.shuqi687.com/book/spas3v/)
-- [沈助理又在隐藏他的超能力](https://www.shuqi687.com/book/spao95/)
-- [新来的室友令人不爽](https://www.shuqi687.com/book/spamv8/)
-- [死遁后冰山O怀了我的崽](https://www.shuqi687.com/book/spajgn/)
-- [逝水](https://www.shuqi687.com/book/spaepo/)
-- [娇婚惯养](https://www.shuqi687.com/book/spaahb/)
-- [宇智波的遗产](https://www.shuqi687.com/book/spa4m7/)
-- [我与龙傲天寿命共享](https://www.shuqi687.com/book/sp9vqs/)
+- [伪装纨绔，怎么成了名相](https://www.shuqi687.com/book/spa770/)
+- [[足球]最佳前锋](https://www.shuqi687.com/book/spa757/)
 - [简单罗曼史](https://www.shuqi687.com/book/sp9u4f/)
-- [死遁后成了忍界白月光？](https://www.shuqi687.com/book/sp9t12/)
 - [这谁的沙雕二次元心声！](https://www.shuqi687.com/book/sp9svf/)
 - [老公是松散生命体](https://www.shuqi687.com/book/sp9sc6/)
+- [一枝枝怨](https://www.shuqi687.com/book/sp9qa2/)
 - [在魔法世界屯田争霸](https://www.shuqi687.com/book/sp9l2m/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.shuqi687.com/book/sp9gnl/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shuqi687.com/book/sp9gj5/)
 - [[足球]罗蜜第一志愿](https://www.shuqi687.com/book/sp9eq7/)
 - [拯救世界从扮演反派开始](https://www.shuqi687.com/book/sp9bhp/)
-- [八零恶毒后妈杀疯了](https://www.shuqi687.com/book/sp98i2/)
+- [和前女友的心上人he了](https://www.shuqi687.com/book/sp9a9p/)
 - [在民俗惊悚片被诸神庇护](https://www.shuqi687.com/book/sp93he/)
-- [贝利珠](https://www.shuqi687.com/book/2s41h9/)
-- [来日方长](https://www.shuqi687.com/book/96qck/)
+- [哥你不能不要我](https://www.shuqi687.com/book/sp8qs9/)
+- [被奇犽告白以后](https://www.shuqi687.com/book/2s42nm/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1318/index.md)
