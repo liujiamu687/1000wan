@@ -1,7 +1,7 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-08-21 03:20:04
+更新时间：2026-08-25 03:23:03
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
@@ -156,6 +156,35 @@
 - [传奇 第146页](/site1364/category106/146.md)
 - [传奇 第147页](/site1364/category106/147.md)
 - [传奇 第148页](/site1364/category106/148.md)
+- [传奇 第149页](/site1364/category106/149.md)
+- [传奇 第150页](/site1364/category106/150.md)
+- [传奇 第151页](/site1364/category106/151.md)
+- [传奇 第152页](/site1364/category106/152.md)
+- [传奇 第153页](/site1364/category106/153.md)
+- [传奇 第154页](/site1364/category106/154.md)
+- [传奇 第155页](/site1364/category106/155.md)
+- [传奇 第156页](/site1364/category106/156.md)
+- [传奇 第157页](/site1364/category106/157.md)
+- [传奇 第158页](/site1364/category106/158.md)
+- [传奇 第159页](/site1364/category106/159.md)
+- [传奇 第160页](/site1364/category106/160.md)
+- [传奇 第161页](/site1364/category106/161.md)
+- [传奇 第162页](/site1364/category106/162.md)
+- [传奇 第163页](/site1364/category106/163.md)
+- [传奇 第164页](/site1364/category106/164.md)
+- [传奇 第165页](/site1364/category106/165.md)
+- [传奇 第166页](/site1364/category106/166.md)
+- [传奇 第167页](/site1364/category106/167.md)
+- [传奇 第168页](/site1364/category106/168.md)
+- [传奇 第169页](/site1364/category106/169.md)
+- [传奇 第170页](/site1364/category106/170.md)
+- [传奇 第171页](/site1364/category106/171.md)
+- [传奇 第172页](/site1364/category106/172.md)
+- [传奇 第173页](/site1364/category106/173.md)
+- [传奇 第174页](/site1364/category106/174.md)
+- [传奇 第175页](/site1364/category106/175.md)
+- [传奇 第176页](/site1364/category106/176.md)
+- [传奇 第177页](/site1364/category106/177.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1364/index.md)
