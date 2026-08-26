@@ -1,43 +1,36 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-08-21 03:19:33
+更新时间：2026-08-25 03:22:32
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
 - [看书小说网](https://www.kanshu666.com/)
 
 ## 最新小说
+- [[封神]圣人生欲](https://www.kanshu666.com/book/8jv7i8c/)
+- [你，后室管理员](https://www.kanshu666.com/book/8jv7i87/)
+- [星际团宠小人鱼](https://www.kanshu666.com/book/8jv7i7j/)
+- [他要和我谈恋爱](https://www.kanshu666.com/book/8jv7i7h/)
+- [夺友妻（女尊）](https://www.kanshu666.com/book/8jv7i7e/)
+- [高调装神，猥琐发育](https://www.kanshu666.com/book/8jv7i6h/)
 - [高嫁之后](https://www.kanshu666.com/book/8jv7i41/)
-- [从异世界穿回来后](https://www.kanshu666.com/book/8jv7i3s/)
 - [[希腊神话]蛇蛇神生美妙](https://www.kanshu666.com/book/8jv7i3r/)
-- [直男咒术师的限制级游戏](https://www.kanshu666.com/book/8jv7i2n/)
 - [纯爱宇智波基本恋爱法](https://www.kanshu666.com/book/8jv7i22/)
 - [某柯学的正义伙伴](https://www.kanshu666.com/book/8jv4pkl/)
-- [啊？我是万人迷？［虫族］](https://www.kanshu666.com/book/8jv4phs/)
-- [男朋友买一送一](https://www.kanshu666.com/book/8jv4ce7/)
-- [全球进化，而我保持不变](https://www.kanshu666.com/book/rj68t2/)
-- [她是反派的背景板母亲](https://www.kanshu666.com/book/rj66ej/)
-- [沈助理又在隐藏他的超能力](https://www.kanshu666.com/book/rj63r4/)
-- [新来的室友令人不爽](https://www.kanshu666.com/book/rj5vnp/)
-- [死遁后冰山O怀了我的崽](https://www.kanshu666.com/book/rj5u34/)
-- [逝水](https://www.kanshu666.com/book/rj5nck/)
-- [娇婚惯养](https://www.kanshu666.com/book/rj5lc4/)
-- [宇智波的遗产](https://www.kanshu666.com/book/rj5dgv/)
-- [我与龙傲天寿命共享](https://www.kanshu666.com/book/rj59e1/)
+- [[足球]最佳前锋](https://www.kanshu666.com/book/rj5j5h/)
+- [伪装纨绔，怎么成了名相](https://www.kanshu666.com/book/rj5iil/)
 - [简单罗曼史](https://www.kanshu666.com/book/rj57lg/)
 - [老公是松散生命体](https://www.kanshu666.com/book/rj56nd/)
-- [死遁后成了忍界白月光？](https://www.kanshu666.com/book/rj54u4/)
+- [一枝枝怨](https://www.kanshu666.com/book/rj55p2/)
 - [这谁的沙雕二次元心声！](https://www.kanshu666.com/book/rj54ab/)
 - [在魔法世界屯田争霸](https://www.kanshu666.com/book/rj4uud/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kanshu666.com/book/rj4oqb/)
 - [[足球]罗蜜第一志愿](https://www.kanshu666.com/book/rj4noc/)
 - [拯救世界从扮演反派开始](https://www.kanshu666.com/book/rj4mpk/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.kanshu666.com/book/rj4mma/)
-- [八零恶毒后妈杀疯了](https://www.kanshu666.com/book/rj4kn2/)
+- [和前女友的心上人he了](https://www.kanshu666.com/book/rj4let/)
 - [在民俗惊悚片被诸神庇护](https://www.kanshu666.com/book/rj4e47/)
-- [来日方长](https://www.kanshu666.com/book/2o9uro/)
-- [贝利珠](https://www.kanshu666.com/book/2o9ulo/)
+- [哥你不能不要我](https://www.kanshu666.com/book/rj45vi/)
+- [被奇犽告白以后](https://www.kanshu666.com/book/2o9v5v/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1319/index.md)

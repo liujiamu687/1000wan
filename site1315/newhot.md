@@ -1,43 +1,36 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-08-21 03:21:10
+更新时间：2026-08-25 03:24:06
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
 - [连载小说网](https://www.lianzai007.com/)
 
 ## 最新小说
+- [[封神]圣人生欲](https://www.lianzai007.com/book/6g3n1ej/)
+- [星际团宠小人鱼](https://www.lianzai007.com/book/6g3n1eg/)
+- [夺友妻（女尊）](https://www.lianzai007.com/book/6g3n1d9/)
+- [你，后室管理员](https://www.lianzai007.com/book/6g3n1d5/)
+- [他要和我谈恋爱](https://www.lianzai007.com/book/6g3n1cr/)
+- [高调装神，猥琐发育](https://www.lianzai007.com/book/6g3n1cj/)
 - [纯爱宇智波基本恋爱法](https://www.lianzai007.com/book/6g3n1c3/)
 - [[希腊神话]蛇蛇神生美妙](https://www.lianzai007.com/book/6g3n1bc/)
 - [高嫁之后](https://www.lianzai007.com/book/6g3n1b5/)
-- [从异世界穿回来后](https://www.lianzai007.com/book/6g3n1ap/)
-- [直男咒术师的限制级游戏](https://www.lianzai007.com/book/6g3n1ad/)
 - [某柯学的正义伙伴](https://www.lianzai007.com/book/6g3k8h6/)
-- [啊？我是万人迷？［虫族］](https://www.lianzai007.com/book/6g3k8gd/)
-- [男朋友买一送一](https://www.lianzai007.com/book/6g3jtk9/)
-- [全球进化，而我保持不变](https://www.lianzai007.com/book/kq1cs0/)
-- [她是反派的背景板母亲](https://www.lianzai007.com/book/kq19um/)
-- [沈助理又在隐藏他的超能力](https://www.lianzai007.com/book/kq16tu/)
-- [新来的室友令人不爽](https://www.lianzai007.com/book/kq13kd/)
-- [死遁后冰山O怀了我的崽](https://www.lianzai007.com/book/kq1241/)
-- [逝水](https://www.lianzai007.com/book/kq0sd4/)
-- [娇婚惯养](https://www.lianzai007.com/book/kq0o2j/)
-- [宇智波的遗产](https://www.lianzai007.com/book/kq0jlh/)
-- [我与龙傲天寿命共享](https://www.lianzai007.com/book/kq0e2c/)
+- [伪装纨绔，怎么成了名相](https://www.lianzai007.com/book/kq0n5g/)
+- [[足球]最佳前锋](https://www.lianzai007.com/book/kq0lla/)
 - [简单罗曼史](https://www.lianzai007.com/book/kq0cdk/)
 - [这谁的沙雕二次元心声！](https://www.lianzai007.com/book/kq0b8s/)
-- [死遁后成了忍界白月光？](https://www.lianzai007.com/book/kq0aps/)
 - [老公是松散生命体](https://www.lianzai007.com/book/kq09km/)
+- [一枝枝怨](https://www.lianzai007.com/book/kq099g/)
 - [在魔法世界屯田争霸](https://www.lianzai007.com/book/kq04lo/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.lianzai007.com/book/kpvtjn/)
 - [拯救世界从扮演反派开始](https://www.lianzai007.com/book/kpvsqs/)
 - [[足球]罗蜜第一志愿](https://www.lianzai007.com/book/kpvrdj/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.lianzai007.com/book/kpvr8v/)
-- [八零恶毒后妈杀疯了](https://www.lianzai007.com/book/kpvnih/)
+- [和前女友的心上人he了](https://www.lianzai007.com/book/kpvo2c/)
 - [在民俗惊悚片被诸神庇护](https://www.lianzai007.com/book/kpvjrr/)
-- [贝利珠](https://www.lianzai007.com/book/6l401/)
-- [来日方长](https://www.lianzai007.com/book/6l3qm/)
+- [哥你不能不要我](https://www.lianzai007.com/book/kpvare/)
+- [被奇犽告白以后](https://www.lianzai007.com/book/6l3rf/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1315/index.md)

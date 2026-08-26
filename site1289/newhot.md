@@ -1,42 +1,37 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-08-21 03:31:21
+更新时间：2026-08-25 03:35:23
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
 - [三三言情小说](https://www.zhaoxingangjiegou.com/)
 
 ## 最新小说
+- [星际团宠小人鱼](https://www.zhaoxingangjiegou.com/book/1duoss5/)
+- [他要和我谈恋爱](https://www.zhaoxingangjiegou.com/book/1duosrv/)
+- [夺友妻（女尊）](https://www.zhaoxingangjiegou.com/book/1duosrg/)
+- [你，后室管理员](https://www.zhaoxingangjiegou.com/book/1duosrb/)
+- [[封神]圣人生欲](https://www.zhaoxingangjiegou.com/book/1duosql/)
+- [高调装神，猥琐发育](https://www.zhaoxingangjiegou.com/book/1duosqh/)
 - [[希腊神话]蛇蛇神生美妙](https://www.zhaoxingangjiegou.com/book/1duospn/)
 - [高嫁之后](https://www.zhaoxingangjiegou.com/book/1duospg/)
-- [从异世界穿回来后](https://www.zhaoxingangjiegou.com/book/1duosol/)
-- [直男咒术师的限制级游戏](https://www.zhaoxingangjiegou.com/book/1duoso6/)
 - [纯爱宇智波基本恋爱法](https://www.zhaoxingangjiegou.com/book/1duosm1/)
-- [啊？我是万人迷？［虫族］](https://www.zhaoxingangjiegou.com/book/1dum24j/)
 - [某柯学的正义伙伴](https://www.zhaoxingangjiegou.com/book/1dum22a/)
-- [男朋友买一送一](https://www.zhaoxingangjiegou.com/book/1dulp2n/)
-- [全球进化，而我保持不变](https://www.zhaoxingangjiegou.com/book/1dul61a/)
-- [沈助理又在隐藏他的超能力](https://www.zhaoxingangjiegou.com/book/4j4m3p/)
-- [新来的室友令人不爽](https://www.zhaoxingangjiegou.com/book/4j4je6/)
-- [死遁后冰山O怀了我的崽](https://www.zhaoxingangjiegou.com/book/4j4cak/)
-- [逝水](https://www.zhaoxingangjiegou.com/book/4j49im/)
-- [娇婚惯养](https://www.zhaoxingangjiegou.com/book/4j46uo/)
-- [宇智波的遗产](https://www.zhaoxingangjiegou.com/book/4j41ka/)
-- [我与龙傲天寿命共享](https://www.zhaoxingangjiegou.com/book/4j3r16/)
+- [[足球]最佳前锋](https://www.zhaoxingangjiegou.com/book/4j44uf/)
+- [伪装纨绔，怎么成了名相](https://www.zhaoxingangjiegou.com/book/4j3vkp/)
 - [简单罗曼史](https://www.zhaoxingangjiegou.com/book/4j3pno/)
 - [老公是松散生命体](https://www.zhaoxingangjiegou.com/book/4j3no9/)
 - [这谁的沙雕二次元心声！](https://www.zhaoxingangjiegou.com/book/4j3nbb/)
-- [死遁后成了忍界白月光？](https://www.zhaoxingangjiegou.com/book/4j3m7r/)
+- [一枝枝怨](https://www.zhaoxingangjiegou.com/book/4j3j3o/)
 - [在魔法世界屯田争霸](https://www.zhaoxingangjiegou.com/book/4j3h84/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.zhaoxingangjiegou.com/book/4j3a9b/)
 - [拯救世界从扮演反派开始](https://www.zhaoxingangjiegou.com/book/4j3a2d/)
 - [[足球]罗蜜第一志愿](https://www.zhaoxingangjiegou.com/book/4j3a1m/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.zhaoxingangjiegou.com/book/4j38el/)
-- [八零恶毒后妈杀疯了](https://www.zhaoxingangjiegou.com/book/4j370d/)
+- [和前女友的心上人he了](https://www.zhaoxingangjiegou.com/book/4j33jk/)
 - [在民俗惊悚片被诸神庇护](https://www.zhaoxingangjiegou.com/book/4j30hd/)
-- [贝利珠](https://www.zhaoxingangjiegou.com/book/emldd/)
-- [来日方长](https://www.zhaoxingangjiegou.com/book/1f2a8/)
+- [哥你不能不要我](https://www.zhaoxingangjiegou.com/book/4j2m6k/)
+- [被奇犽告白以后](https://www.zhaoxingangjiegou.com/book/1f293/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1289/index.md)

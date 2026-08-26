@@ -1,42 +1,36 @@
 
-# 顶点书包 - 免费TXT小说下载, 手机电子书资源
+# 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-08-21 03:18:16
+更新时间：2026-08-25 03:21:16
 
-顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
+家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
-- [顶点书包](https://www.jjfbaijia.com/)
+- [家家福顶点书包](https://www.jjfbaijia.com/)
 
 ## 最新小说
+- [[封神]圣人生欲](https://www.jjfbaijia.com/book/8hhvkmp/)
+- [你，后室管理员](https://www.jjfbaijia.com/book/8hhvkmd/)
+- [夺友妻（女尊）](https://www.jjfbaijia.com/book/8hhvkm9/)
+- [他要和我谈恋爱](https://www.jjfbaijia.com/book/8hhvkld/)
+- [星际团宠小人鱼](https://www.jjfbaijia.com/book/8hhvkl5/)
+- [高调装神，猥琐发育](https://www.jjfbaijia.com/book/8hhvkkh/)
 - [高嫁之后](https://www.jjfbaijia.com/book/8hhvkj9/)
 - [纯爱宇智波基本恋爱法](https://www.jjfbaijia.com/book/8hhvkj1/)
-- [直男咒术师的限制级游戏](https://www.jjfbaijia.com/book/8hhvki1/)
 - [[希腊神话]蛇蛇神生美妙](https://www.jjfbaijia.com/book/8hhvkhq/)
-- [啊？我是万人迷？［虫族］](https://www.jjfbaijia.com/book/8hhssmc/)
 - [某柯学的正义伙伴](https://www.jjfbaijia.com/book/8hhssl0/)
-- [男朋友买一送一](https://www.jjfbaijia.com/book/8hhshqi/)
-- [全球进化，而我保持不变](https://www.jjfbaijia.com/book/rbf3e4/)
-- [她是反派的背景板母亲](https://www.jjfbaijia.com/book/rbf1nd/)
-- [沈助理又在隐藏他的超能力](https://www.jjfbaijia.com/book/rbeva7/)
-- [新来的室友令人不爽](https://www.jjfbaijia.com/book/rbepju/)
-- [死遁后冰山O怀了我的崽](https://www.jjfbaijia.com/book/rbeod5/)
-- [逝水](https://www.jjfbaijia.com/book/rbei1c/)
-- [娇婚惯养](https://www.jjfbaijia.com/book/rbeevl/)
-- [宇智波的遗产](https://www.jjfbaijia.com/book/rbe9j8/)
-- [我与龙傲天寿命共享](https://www.jjfbaijia.com/book/rbe49v/)
+- [[足球]最佳前锋](https://www.jjfbaijia.com/book/rbedim/)
+- [伪装纨绔，怎么成了名相](https://www.jjfbaijia.com/book/rbeamk/)
 - [简单罗曼史](https://www.jjfbaijia.com/book/rbe287/)
 - [这谁的沙雕二次元心声！](https://www.jjfbaijia.com/book/rbe160/)
-- [死遁后成了忍界白月光？](https://www.jjfbaijia.com/book/rbe04n/)
 - [老公是松散生命体](https://www.jjfbaijia.com/book/rbdut6/)
+- [一枝枝怨](https://www.jjfbaijia.com/book/rbdupd/)
 - [在魔法世界屯田争霸](https://www.jjfbaijia.com/book/rbdps2/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.jjfbaijia.com/book/rbdlj4/)
 - [[足球]罗蜜第一志愿](https://www.jjfbaijia.com/book/rbdhkb/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.jjfbaijia.com/book/rbdh12/)
 - [拯救世界从扮演反派开始](https://www.jjfbaijia.com/book/rbdg78/)
-- [八零恶毒后妈杀疯了](https://www.jjfbaijia.com/book/rbdec6/)
+- [和前女友的心上人he了](https://www.jjfbaijia.com/book/rbdb59/)
 - [在民俗惊悚片被诸神庇护](https://www.jjfbaijia.com/book/rbd648/)
-- [贝利珠](https://www.jjfbaijia.com/book/2nh9cg/)
-- [来日方长](https://www.jjfbaijia.com/book/2nh92q/)
+- [哥你不能不要我](https://www.jjfbaijia.com/book/rbcuie/)
+- [被奇犽告白以后](https://www.jjfbaijia.com/book/2nh9qn/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1327/index.md)
