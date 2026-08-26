@@ -1,42 +1,36 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-08-21 03:23:41
+更新时间：2026-08-25 03:27:07
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
 - [笔趣阁啦](https://www.qingyuchun.com/)
 
 ## 最新小说
+- [[封神]圣人生欲](https://www.qingyuchun.com/book/10578eh/)
+- [星际团宠小人鱼](https://www.qingyuchun.com/book/10578e2/)
+- [他要和我谈恋爱](https://www.qingyuchun.com/book/10578dt/)
+- [你，后室管理员](https://www.qingyuchun.com/book/10578dr/)
+- [夺友妻（女尊）](https://www.qingyuchun.com/book/10578dh/)
+- [高调装神，猥琐发育](https://www.qingyuchun.com/book/10578ce/)
 - [[希腊神话]蛇蛇神生美妙](https://www.qingyuchun.com/book/10578ap/)
-- [直男咒术师的限制级游戏](https://www.qingyuchun.com/book/105789t/)
 - [高嫁之后](https://www.qingyuchun.com/book/105789i/)
 - [纯爱宇智波基本恋爱法](https://www.qingyuchun.com/book/105788k/)
-- [啊？我是万人迷？［虫族］](https://www.qingyuchun.com/book/1054frh/)
 - [某柯学的正义伙伴](https://www.qingyuchun.com/book/1054fqs/)
-- [男朋友买一送一](https://www.qingyuchun.com/book/1054421/)
-- [全球进化，而我保持不变](https://www.qingyuchun.com/book/36vqhq/)
-- [她是反派的背景板母亲](https://www.qingyuchun.com/book/36vomi/)
-- [沈助理又在隐藏他的超能力](https://www.qingyuchun.com/book/36vlen/)
-- [新来的室友令人不爽](https://www.qingyuchun.com/book/36vhe3/)
-- [死遁后冰山O怀了我的崽](https://www.qingyuchun.com/book/36vf8e/)
-- [逝水](https://www.qingyuchun.com/book/36v8tb/)
-- [娇婚惯养](https://www.qingyuchun.com/book/36v5p1/)
-- [宇智波的遗产](https://www.qingyuchun.com/book/36v10j/)
+- [[足球]最佳前锋](https://www.qingyuchun.com/book/36v4mv/)
+- [伪装纨绔，怎么成了名相](https://www.qingyuchun.com/book/36v30u/)
 - [简单罗曼史](https://www.qingyuchun.com/book/36urem/)
-- [我与龙傲天寿命共享](https://www.qingyuchun.com/book/36uqil/)
-- [死遁后成了忍界白月光？](https://www.qingyuchun.com/book/36uppb/)
 - [这谁的沙雕二次元心声！](https://www.qingyuchun.com/book/36uon7/)
+- [一枝枝怨](https://www.qingyuchun.com/book/36un6v/)
 - [老公是松散生命体](https://www.qingyuchun.com/book/36umob/)
 - [在魔法世界屯田争霸](https://www.qingyuchun.com/book/36uh4s/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.qingyuchun.com/book/36uate/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.qingyuchun.com/book/36uahu/)
 - [拯救世界从扮演反派开始](https://www.qingyuchun.com/book/36u8kj/)
 - [[足球]罗蜜第一志愿](https://www.qingyuchun.com/book/36u8i7/)
-- [八零恶毒后妈杀疯了](https://www.qingyuchun.com/book/36u4nt/)
+- [和前女友的心上人he了](https://www.qingyuchun.com/book/36u78u/)
 - [在民俗惊悚片被诸神庇护](https://www.qingyuchun.com/book/36u052/)
-- [来日方长](https://www.qingyuchun.com/book/a9bbm/)
-- [贝利珠](https://www.qingyuchun.com/book/39du/)
+- [哥你不能不要我](https://www.qingyuchun.com/book/36tlq2/)
+- [被奇犽告白以后](https://www.qingyuchun.com/book/10ue7/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1291/index.md)
