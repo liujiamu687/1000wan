@@ -1,42 +1,37 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-21 03:29:38
+更新时间：2026-08-25 03:33:33
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
 - [炫书网](https://www.xqwz8bk.com/)
 
 ## 最新小说
+- [他要和我谈恋爱](https://www.xqwz8bk.com/book/1igm2uj/)
+- [星际团宠小人鱼](https://www.xqwz8bk.com/book/1igm2ui/)
+- [夺友妻（女尊）](https://www.xqwz8bk.com/book/1igm2u4/)
+- [你，后室管理员](https://www.xqwz8bk.com/book/1igm2tn/)
+- [[封神]圣人生欲](https://www.xqwz8bk.com/book/1igm2t8/)
+- [高调装神，猥琐发育](https://www.xqwz8bk.com/book/1igm2sj/)
 - [高嫁之后](https://www.xqwz8bk.com/book/1igm2q2/)
 - [纯爱宇智波基本恋爱法](https://www.xqwz8bk.com/book/1igm2ok/)
 - [[希腊神话]蛇蛇神生美妙](https://www.xqwz8bk.com/book/1igm2oh/)
-- [直男咒术师的限制级游戏](https://www.xqwz8bk.com/book/1igm2nn/)
-- [啊？我是万人迷？［虫族］](https://www.xqwz8bk.com/book/1igjajt/)
 - [某柯学的正义伙伴](https://www.xqwz8bk.com/book/1igjaf1/)
-- [男朋友买一送一](https://www.xqwz8bk.com/book/1igivog/)
-- [全球进化，而我保持不变](https://www.xqwz8bk.com/book/51nng7/)
-- [她是反派的背景板母亲](https://www.xqwz8bk.com/book/51nk6q/)
-- [沈助理又在隐藏他的超能力](https://www.xqwz8bk.com/book/51nhdc/)
-- [新来的室友令人不爽](https://www.xqwz8bk.com/book/51nemg/)
-- [死遁后冰山O怀了我的崽](https://www.xqwz8bk.com/book/51nc27/)
-- [逝水](https://www.xqwz8bk.com/book/51n6a8/)
-- [娇婚惯养](https://www.xqwz8bk.com/book/51n3ud/)
-- [宇智波的遗产](https://www.xqwz8bk.com/book/51mupj/)
-- [我与龙傲天寿命共享](https://www.xqwz8bk.com/book/51mp1f/)
+- [[足球]最佳前锋](https://www.xqwz8bk.com/book/51mvsj/)
+- [伪装纨绔，怎么成了名相](https://www.xqwz8bk.com/book/51mtn5/)
 - [简单罗曼史](https://www.xqwz8bk.com/book/51mnog/)
 - [这谁的沙雕二次元心声！](https://www.xqwz8bk.com/book/51mm6d/)
-- [死遁后成了忍界白月光？](https://www.xqwz8bk.com/book/51mkuj/)
 - [老公是松散生命体](https://www.xqwz8bk.com/book/51mj0i/)
+- [一枝枝怨](https://www.xqwz8bk.com/book/51mgp0/)
 - [在魔法世界屯田争霸](https://www.xqwz8bk.com/book/51me3v/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.xqwz8bk.com/book/51m8ed/)
 - [拯救世界从扮演反派开始](https://www.xqwz8bk.com/book/51m6sd/)
 - [[足球]罗蜜第一志愿](https://www.xqwz8bk.com/book/51m4qf/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.xqwz8bk.com/book/51m4lu/)
-- [八零恶毒后妈杀疯了](https://www.xqwz8bk.com/book/51m476/)
+- [和前女友的心上人he了](https://www.xqwz8bk.com/book/51lvtu/)
 - [在民俗惊悚片被诸神庇护](https://www.xqwz8bk.com/book/51lti9/)
-- [贝利珠](https://www.xqwz8bk.com/book/g5b8p/)
-- [来日方长](https://www.xqwz8bk.com/book/g5a20/)
+- [哥你不能不要我](https://www.xqwz8bk.com/book/51lih5/)
+- [被奇犽告白以后](https://www.xqwz8bk.com/book/1jnq8/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1325/index.md)

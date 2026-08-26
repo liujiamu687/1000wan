@@ -1,43 +1,36 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-21 03:24:01
+更新时间：2026-08-25 03:27:24
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
-- [直男咒术师的限制级游戏](https://www.revwarny.com/book/3sgl7hr/)
+- [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
+- [[封神]圣人生欲](https://www.revwarny.com/book/3sgl7k8/)
+- [夺友妻（女尊）](https://www.revwarny.com/book/3sgl7k5/)
+- [你，后室管理员](https://www.revwarny.com/book/3sgl7j5/)
+- [他要和我谈恋爱](https://www.revwarny.com/book/3sgl7it/)
+- [高调装神，猥琐发育](https://www.revwarny.com/book/3sgl7ih/)
 - [纯爱宇智波基本恋爱法](https://www.revwarny.com/book/3sgl7go/)
 - [高嫁之后](https://www.revwarny.com/book/3sgl7g1/)
-- [从异世界穿回来后](https://www.revwarny.com/book/3sgl7dp/)
 - [[希腊神话]蛇蛇神生美妙](https://www.revwarny.com/book/3sgl7da/)
 - [某柯学的正义伙伴](https://www.revwarny.com/book/3sgiemk/)
-- [啊？我是万人迷？［虫族］](https://www.revwarny.com/book/3sgiedv/)
-- [男朋友买一送一](https://www.revwarny.com/book/3sgi3a9/)
-- [全球进化，而我保持不变](https://www.revwarny.com/book/ceh6u5/)
-- [她是反派的背景板母亲](https://www.revwarny.com/book/ceh5kk/)
-- [沈助理又在隐藏他的超能力](https://www.revwarny.com/book/ceh0li/)
-- [新来的室友令人不爽](https://www.revwarny.com/book/cegu9g/)
-- [死遁后冰山O怀了我的崽](https://www.revwarny.com/book/cegt25/)
-- [逝水](https://www.revwarny.com/book/cegnhs/)
-- [娇婚惯养](https://www.revwarny.com/book/cegj8q/)
-- [宇智波的遗产](https://www.revwarny.com/book/cegbuf/)
+- [[足球]最佳前锋](https://www.revwarny.com/book/ceghjg/)
+- [伪装纨绔，怎么成了名相](https://www.revwarny.com/book/cegfk9/)
 - [简单罗曼史](https://www.revwarny.com/book/ceg7ce/)
-- [我与龙傲天寿命共享](https://www.revwarny.com/book/ceg6pa/)
+- [一枝枝怨](https://www.revwarny.com/book/ceg4qj/)
 - [老公是松散生命体](https://www.revwarny.com/book/ceg48f/)
 - [这谁的沙雕二次元心声！](https://www.revwarny.com/book/ceg3rf/)
-- [死遁后成了忍界白月光？](https://www.revwarny.com/book/ceg3p1/)
 - [在魔法世界屯田争霸](https://www.revwarny.com/book/cefulr/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.revwarny.com/book/cefq58/)
 - [[足球]罗蜜第一志愿](https://www.revwarny.com/book/cefn53/)
 - [拯救世界从扮演反派开始](https://www.revwarny.com/book/cefn31/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.revwarny.com/book/cefl93/)
-- [八零恶毒后妈杀疯了](https://www.revwarny.com/book/cefjko/)
+- [和前女友的心上人he了](https://www.revwarny.com/book/cefj2g/)
 - [在民俗惊悚片被诸神庇护](https://www.revwarny.com/book/cefc5k/)
-- [来日方长](https://www.revwarny.com/book/17r3d7/)
-- [贝利珠](https://www.revwarny.com/book/3vga9/)
+- [哥你不能不要我](https://www.revwarny.com/book/cef4gk/)
+- [被奇犽告白以后](https://www.revwarny.com/book/17r3mq/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1302/index.md)

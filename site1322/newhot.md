@@ -1,42 +1,36 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-08-21 03:27:24
+更新时间：2026-08-25 03:30:52
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
 - [文学小说网](https://www.wenxue521.com/)
 
 ## 最新小说
-- [直男咒术师的限制级游戏](https://www.wenxue521.com/book/93ols9s/)
+- [你，后室管理员](https://www.wenxue521.com/book/93olscq/)
+- [星际团宠小人鱼](https://www.wenxue521.com/book/93olsc5/)
+- [夺友妻（女尊）](https://www.wenxue521.com/book/93olsbg/)
+- [[封神]圣人生欲](https://www.wenxue521.com/book/93olsba/)
+- [他要和我谈恋爱](https://www.wenxue521.com/book/93olsb5/)
+- [高调装神，猥琐发育](https://www.wenxue521.com/book/93olsaf/)
 - [高嫁之后](https://www.wenxue521.com/book/93ols8d/)
 - [纯爱宇智波基本恋爱法](https://www.wenxue521.com/book/93ols72/)
 - [[希腊神话]蛇蛇神生美妙](https://www.wenxue521.com/book/93ols5n/)
-- [啊？我是万人迷？［虫族］](https://www.wenxue521.com/book/93oj3q0/)
 - [某柯学的正义伙伴](https://www.wenxue521.com/book/93oj3l9/)
-- [男朋友买一送一](https://www.wenxue521.com/book/93oiphh/)
-- [全球进化，而我保持不变](https://www.wenxue521.com/book/93oi4jc/)
-- [她是反派的背景板母亲](https://www.wenxue521.com/book/t5nldn/)
-- [沈助理又在隐藏他的超能力](https://www.wenxue521.com/book/t5nj0r/)
-- [新来的室友令人不爽](https://www.wenxue521.com/book/t5nek5/)
-- [死遁后冰山O怀了我的崽](https://www.wenxue521.com/book/t5naoc/)
-- [逝水](https://www.wenxue521.com/book/t5n5e3/)
-- [娇婚惯养](https://www.wenxue521.com/book/t5n2it/)
-- [宇智波的遗产](https://www.wenxue521.com/book/t5mrs6/)
+- [[足球]最佳前锋](https://www.wenxue521.com/book/t5n0be/)
+- [伪装纨绔，怎么成了名相](https://www.wenxue521.com/book/t5mv89/)
 - [简单罗曼史](https://www.wenxue521.com/book/t5moeu/)
-- [我与龙傲天寿命共享](https://www.wenxue521.com/book/t5mo2l/)
-- [死遁后成了忍界白月光？](https://www.wenxue521.com/book/t5mjh9/)
 - [这谁的沙雕二次元心声！](https://www.wenxue521.com/book/t5mjaj/)
 - [老公是松散生命体](https://www.wenxue521.com/book/t5mit0/)
+- [一枝枝怨](https://www.wenxue521.com/book/t5mgrf/)
 - [在魔法世界屯田争霸](https://www.wenxue521.com/book/t5me0n/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wenxue521.com/book/t5m8s5/)
 - [[足球]罗蜜第一志愿](https://www.wenxue521.com/book/t5m68n/)
 - [拯救世界从扮演反派开始](https://www.wenxue521.com/book/t5m4p2/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.wenxue521.com/book/t5m454/)
-- [八零恶毒后妈杀疯了](https://www.wenxue521.com/book/t5m1ph/)
+- [和前女友的心上人he了](https://www.wenxue521.com/book/t5m0b9/)
 - [在民俗惊悚片被诸神庇护](https://www.wenxue521.com/book/t5ls19/)
-- [来日方长](https://www.wenxue521.com/book/2tbomc/)
-- [贝利珠](https://www.wenxue521.com/book/9ap39/)
+- [哥你不能不要我](https://www.wenxue521.com/book/t5lihi/)
+- [被奇犽告白以后](https://www.wenxue521.com/book/2tboe0/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1322/index.md)
