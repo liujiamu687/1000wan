@@ -1,43 +1,36 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-21 03:14:48
+更新时间：2026-08-25 03:17:04
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
 - [创意小说网](https://www.chuangyi1687.com/)
 
 ## 最新小说
-- [从异世界穿回来后](https://www.chuangyi1687.com/book/1hvgoo4/)
+- [夺友妻（女尊）](https://www.chuangyi1687.com/book/1hvgoqa/)
+- [[封神]圣人生欲](https://www.chuangyi1687.com/book/1hvgoq7/)
+- [星际团宠小人鱼](https://www.chuangyi1687.com/book/1hvgopt/)
+- [你，后室管理员](https://www.chuangyi1687.com/book/1hvgop8/)
+- [他要和我谈恋爱](https://www.chuangyi1687.com/book/1hvgop7/)
+- [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
 - [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
 - [[希腊神话]蛇蛇神生美妙](https://www.chuangyi1687.com/book/1hvgojp/)
-- [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
 - [高嫁之后](https://www.chuangyi1687.com/book/1hvgoje/)
 - [某柯学的正义伙伴](https://www.chuangyi1687.com/book/1hve06a/)
-- [啊？我是万人迷？［虫族］](https://www.chuangyi1687.com/book/1hvdvu4/)
-- [男朋友买一送一](https://www.chuangyi1687.com/book/1hvdjlf/)
-- [全球进化，而我保持不变](https://www.chuangyi1687.com/book/500oa4/)
-- [她是反派的背景板母亲](https://www.chuangyi1687.com/book/500o0c/)
-- [沈助理又在隐藏他的超能力](https://www.chuangyi1687.com/book/500j2q/)
-- [新来的室友令人不爽](https://www.chuangyi1687.com/book/500gro/)
-- [死遁后冰山O怀了我的崽](https://www.chuangyi1687.com/book/500d7i/)
-- [逝水](https://www.chuangyi1687.com/book/5008in/)
-- [娇婚惯养](https://www.chuangyi1687.com/book/5005em/)
-- [宇智波的遗产](https://www.chuangyi1687.com/book/4vvuf7/)
-- [我与龙傲天寿命共享](https://www.chuangyi1687.com/book/4vvpqr/)
-- [死遁后成了忍界白月光？](https://www.chuangyi1687.com/book/4vvpfu/)
+- [[足球]最佳前锋](https://www.chuangyi1687.com/book/5002re/)
+- [伪装纨绔，怎么成了名相](https://www.chuangyi1687.com/book/5000q9/)
 - [简单罗曼史](https://www.chuangyi1687.com/book/4vvncn/)
+- [一枝枝怨](https://www.chuangyi1687.com/book/4vvn1b/)
 - [这谁的沙雕二次元心声！](https://www.chuangyi1687.com/book/4vvm7l/)
 - [老公是松散生命体](https://www.chuangyi1687.com/book/4vvljq/)
 - [在魔法世界屯田争霸](https://www.chuangyi1687.com/book/4vvevl/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.chuangyi1687.com/book/4vvavq/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.chuangyi1687.com/book/4vvaqt/)
 - [[足球]罗蜜第一志愿](https://www.chuangyi1687.com/book/4vv7ka/)
 - [拯救世界从扮演反派开始](https://www.chuangyi1687.com/book/4vv7fs/)
-- [八零恶毒后妈杀疯了](https://www.chuangyi1687.com/book/4vv4bi/)
+- [和前女友的心上人he了](https://www.chuangyi1687.com/book/4vv2v2/)
 - [在民俗惊悚片被诸神庇护](https://www.chuangyi1687.com/book/4vutmn/)
-- [来日方长](https://www.chuangyi1687.com/book/fvr06/)
-- [贝利珠](https://www.chuangyi1687.com/book/1j5v2/)
+- [哥你不能不要我](https://www.chuangyi1687.com/book/4vumbd/)
+- [被奇犽告白以后](https://www.chuangyi1687.com/book/1j6ar/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1316/index.md)
