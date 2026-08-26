@@ -1,42 +1,36 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-08-21 03:18:49
+更新时间：2026-08-25 03:21:48
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [笔趣阁](https://www.kangrunwangye.com/)
 
 ## 最新小说
+- [星际团宠小人鱼](https://www.kangrunwangye.com/book/1o9mg2c/)
+- [他要和我谈恋爱](https://www.kangrunwangye.com/book/1o9mg22/)
+- [夺友妻（女尊）](https://www.kangrunwangye.com/book/1o9mg21/)
+- [你，后室管理员](https://www.kangrunwangye.com/book/1o9mg0v/)
+- [[封神]圣人生欲](https://www.kangrunwangye.com/book/1o9mg0m/)
+- [高调装神，猥琐发育](https://www.kangrunwangye.com/book/1o9mg0i/)
 - [[希腊神话]蛇蛇神生美妙](https://www.kangrunwangye.com/book/1o9mfur/)
 - [纯爱宇智波基本恋爱法](https://www.kangrunwangye.com/book/1o9mftb/)
 - [高嫁之后](https://www.kangrunwangye.com/book/1o9mft7/)
-- [直男咒术师的限制级游戏](https://www.kangrunwangye.com/book/1o9mfri/)
 - [某柯学的正义伙伴](https://www.kangrunwangye.com/book/1o9jns6/)
-- [啊？我是万人迷？［虫族］](https://www.kangrunwangye.com/book/1o9jnon/)
-- [男朋友买一送一](https://www.kangrunwangye.com/book/1o9jat9/)
-- [全球进化，而我保持不变](https://www.kangrunwangye.com/book/5k7q1a/)
-- [她是反派的背景板母亲](https://www.kangrunwangye.com/book/5k7nro/)
-- [沈助理又在隐藏他的超能力](https://www.kangrunwangye.com/book/5k7iof/)
-- [新来的室友令人不爽](https://www.kangrunwangye.com/book/5k7ha1/)
-- [死遁后冰山O怀了我的崽](https://www.kangrunwangye.com/book/5k7e5j/)
-- [逝水](https://www.kangrunwangye.com/book/5k77jl/)
-- [娇婚惯养](https://www.kangrunwangye.com/book/5k73pq/)
-- [宇智波的遗产](https://www.kangrunwangye.com/book/5k6v4m/)
-- [我与龙傲天寿命共享](https://www.kangrunwangye.com/book/5k6pgf/)
+- [[足球]最佳前锋](https://www.kangrunwangye.com/book/5k71v8/)
+- [伪装纨绔，怎么成了名相](https://www.kangrunwangye.com/book/5k710b/)
 - [简单罗曼史](https://www.kangrunwangye.com/book/5k6o34/)
-- [死遁后成了忍界白月光？](https://www.kangrunwangye.com/book/5k6lr7/)
+- [一枝枝怨](https://www.kangrunwangye.com/book/5k6n6p/)
 - [老公是松散生命体](https://www.kangrunwangye.com/book/5k6kss/)
 - [这谁的沙雕二次元心声！](https://www.kangrunwangye.com/book/5k6kik/)
 - [在魔法世界屯田争霸](https://www.kangrunwangye.com/book/5k6gpk/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kangrunwangye.com/book/5k68v4/)
 - [拯救世界从扮演反派开始](https://www.kangrunwangye.com/book/5k67r2/)
 - [[足球]罗蜜第一志愿](https://www.kangrunwangye.com/book/5k66hg/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.kangrunwangye.com/book/5k65n7/)
-- [八零恶毒后妈杀疯了](https://www.kangrunwangye.com/book/5k638i/)
+- [和前女友的心上人he了](https://www.kangrunwangye.com/book/5k6236/)
 - [在民俗惊悚片被诸神庇护](https://www.kangrunwangye.com/book/5k5tl9/)
-- [贝利珠](https://www.kangrunwangye.com/book/i0i0p/)
-- [来日方长](https://www.kangrunwangye.com/book/i0h64/)
+- [哥你不能不要我](https://www.kangrunwangye.com/book/5k5l59/)
+- [被奇犽告白以后](https://www.kangrunwangye.com/book/i0h7q/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1297/index.md)

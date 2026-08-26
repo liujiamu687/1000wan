@@ -1,43 +1,36 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-21 03:14:28
+更新时间：2026-08-25 03:16:46
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
 - [速阅阁小说网](https://www.ccccenergy.com/)
 
 ## 最新小说
-- [从异世界穿回来后](https://www.ccccenergy.com/book/7car60a/)
+- [[封神]圣人生欲](https://www.ccccenergy.com/book/7car64n/)
+- [夺友妻（女尊）](https://www.ccccenergy.com/book/7car649/)
+- [星际团宠小人鱼](https://www.ccccenergy.com/book/7car63c/)
+- [你，后室管理员](https://www.ccccenergy.com/book/7car635/)
+- [他要和我谈恋爱](https://www.ccccenergy.com/book/7car62q/)
+- [高调装神，猥琐发育](https://www.ccccenergy.com/book/7car62g/)
 - [[希腊神话]蛇蛇神生美妙](https://www.ccccenergy.com/book/7car5to/)
-- [直男咒术师的限制级游戏](https://www.ccccenergy.com/book/7car5tj/)
 - [纯爱宇智波基本恋爱法](https://www.ccccenergy.com/book/7car5tc/)
 - [高嫁之后](https://www.ccccenergy.com/book/7car5t9/)
 - [某柯学的正义伙伴](https://www.ccccenergy.com/book/7caod92/)
-- [啊？我是万人迷？［虫族］](https://www.ccccenergy.com/book/7caod69/)
-- [男朋友买一送一](https://www.ccccenergy.com/book/7cao14c/)
-- [全球进化，而我保持不变](https://www.ccccenergy.com/book/nkbdvt/)
-- [她是反派的背景板母亲](https://www.ccccenergy.com/book/nkb9n4/)
-- [新来的室友令人不爽](https://www.ccccenergy.com/book/nkb7b4/)
-- [沈助理又在隐藏他的超能力](https://www.ccccenergy.com/book/nkb70f/)
-- [死遁后冰山O怀了我的崽](https://www.ccccenergy.com/book/nkb2hc/)
-- [逝水](https://www.ccccenergy.com/book/nkav2a/)
-- [娇婚惯养](https://www.ccccenergy.com/book/nkapcq/)
-- [宇智波的遗产](https://www.ccccenergy.com/book/nkaj64/)
+- [[足球]最佳前锋](https://www.ccccenergy.com/book/nkaneq/)
+- [伪装纨绔，怎么成了名相](https://www.ccccenergy.com/book/nkaktu/)
 - [简单罗曼史](https://www.ccccenergy.com/book/nkaeqi/)
-- [死遁后成了忍界白月光？](https://www.ccccenergy.com/book/nkaehk/)
-- [我与龙傲天寿命共享](https://www.ccccenergy.com/book/nkadj3/)
 - [老公是松散生命体](https://www.ccccenergy.com/book/nka9ut/)
+- [一枝枝怨](https://www.ccccenergy.com/book/nka97e/)
 - [这谁的沙雕二次元心声！](https://www.ccccenergy.com/book/nka963/)
 - [在魔法世界屯田争霸](https://www.ccccenergy.com/book/nka5e9/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.ccccenergy.com/book/nk9tpp/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ccccenergy.com/book/nk9tio/)
 - [[足球]罗蜜第一志愿](https://www.ccccenergy.com/book/nk9sjl/)
 - [拯救世界从扮演反派开始](https://www.ccccenergy.com/book/nk9s4r/)
-- [八零恶毒后妈杀疯了](https://www.ccccenergy.com/book/nk9oar/)
+- [和前女友的心上人he了](https://www.ccccenergy.com/book/nk9pte/)
 - [在民俗惊悚片被诸神庇护](https://www.ccccenergy.com/book/nk9k0r/)
-- [贝利珠](https://www.ccccenergy.com/book/2bk3ri/)
-- [来日方长](https://www.ccccenergy.com/book/2bk311/)
+- [哥你不能不要我](https://www.ccccenergy.com/book/nk9ase/)
+- [被奇犽告白以后](https://www.ccccenergy.com/book/2bk2cg/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1293/index.md)

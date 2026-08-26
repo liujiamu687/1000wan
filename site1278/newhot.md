@@ -1,41 +1,37 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-21 03:31:52
+更新时间：2026-08-25 03:35:55
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
 - [自由屋](https://www.ziyuhai.com/)
 
 ## 最新小说
+- [他要和我谈恋爱](https://www.ziyuhai.com/book/84rn52u/)
+- [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
+- [[封神]圣人生欲](https://www.ziyuhai.com/book/84rn52m/)
+- [你，后室管理员](https://www.ziyuhai.com/book/84rn52k/)
+- [夺友妻（女尊）](https://www.ziyuhai.com/book/84rn50t/)
+- [高调装神，猥琐发育](https://www.ziyuhai.com/book/84rn50f/)
 - [高嫁之后](https://www.ziyuhai.com/book/84rn50a/)
 - [纯爱宇智波基本恋爱法](https://www.ziyuhai.com/book/84rn4so/)
-- [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
 - [[希腊神话]蛇蛇神生美妙](https://www.ziyuhai.com/book/84rn4ro/)
 - [某柯学的正义伙伴](https://www.ziyuhai.com/book/84rkc7d/)
-- [啊？我是万人迷？［虫族］](https://www.ziyuhai.com/book/84rkc67/)
-- [男朋友买一送一](https://www.ziyuhai.com/book/84rk0l8/)
-- [全球进化，而我保持不变](https://www.ziyuhai.com/book/q2r2lo/)
-- [沈助理又在隐藏他的超能力](https://www.ziyuhai.com/book/q2qrpa/)
-- [新来的室友令人不爽](https://www.ziyuhai.com/book/q2qp44/)
-- [死遁后冰山O怀了我的崽](https://www.ziyuhai.com/book/q2qm87/)
-- [逝水](https://www.ziyuhai.com/book/q2qh1n/)
-- [娇婚惯养](https://www.ziyuhai.com/book/q2qcmu/)
-- [宇智波的遗产](https://www.ziyuhai.com/book/q2q8sh/)
-- [我与龙傲天寿命共享](https://www.ziyuhai.com/book/q2q1sv/)
+- [[足球]最佳前锋](https://www.ziyuhai.com/book/q2q9jf/)
+- [伪装纨绔，怎么成了名相](https://www.ziyuhai.com/book/q2q96i/)
 - [简单罗曼史](https://www.ziyuhai.com/book/q2pvuf/)
-- [死遁后成了忍界白月光？](https://www.ziyuhai.com/book/q2pucr/)
+- [一枝枝怨](https://www.ziyuhai.com/book/q2puah/)
 - [这谁的沙雕二次元心声！](https://www.ziyuhai.com/book/q2ptab/)
 - [老公是松散生命体](https://www.ziyuhai.com/book/q2pt2v/)
 - [在魔法世界屯田争霸](https://www.ziyuhai.com/book/q2pn1d/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ziyuhai.com/book/q2pj08/)
 - [[足球]罗蜜第一志愿](https://www.ziyuhai.com/book/q2pfeg/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.ziyuhai.com/book/q2peps/)
 - [拯救世界从扮演反派开始](https://www.ziyuhai.com/book/q2pecm/)
-- [八零恶毒后妈杀疯了](https://www.ziyuhai.com/book/q2pbsc/)
+- [和前女友的心上人he了](https://www.ziyuhai.com/book/q2pc5e/)
 - [在民俗惊悚片被诸神庇护](https://www.ziyuhai.com/book/q2p57s/)
-- [来日方长](https://www.ziyuhai.com/book/2jf8tj/)
-- [贝利珠](https://www.ziyuhai.com/book/2jf8ab/)
+- [哥你不能不要我](https://www.ziyuhai.com/book/q2os1a/)
+- [被奇犽告白以后](https://www.ziyuhai.com/book/2jf8ql/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1278/index.md)
