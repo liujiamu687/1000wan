@@ -1,43 +1,36 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-08-21 03:20:30
+更新时间：2026-08-25 03:23:31
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
 - [笔趣屋](https://www.kmjike.com/)
 
 ## 最新小说
+- [[封神]圣人生欲](https://www.kmjike.com/book/4mlvlgr/)
+- [星际团宠小人鱼](https://www.kmjike.com/book/4mlvlgg/)
+- [夺友妻（女尊）](https://www.kmjike.com/book/4mlvlg2/)
+- [他要和我谈恋爱](https://www.kmjike.com/book/4mlvlg1/)
+- [你，后室管理员](https://www.kmjike.com/book/4mlvlep/)
+- [高调装神，猥琐发育](https://www.kmjike.com/book/4mlvlef/)
 - [[希腊神话]蛇蛇神生美妙](https://www.kmjike.com/book/4mlvldm/)
 - [纯爱宇智波基本恋爱法](https://www.kmjike.com/book/4mlvlde/)
-- [直男咒术师的限制级游戏](https://www.kmjike.com/book/4mlvld8/)
-- [从异世界穿回来后](https://www.kmjike.com/book/4mlvl9p/)
 - [高嫁之后](https://www.kmjike.com/book/4mlvl9l/)
-- [啊？我是万人迷？［虫族］](https://www.kmjike.com/book/4mlssfq/)
 - [某柯学的正义伙伴](https://www.kmjike.com/book/4mlsscs/)
-- [男朋友买一送一](https://www.kmjike.com/book/4mlshpc/)
-- [全球进化，而我保持不变](https://www.kmjike.com/book/f28l2e/)
-- [她是反派的背景板母亲](https://www.kmjike.com/book/f28jf2/)
-- [沈助理又在隐藏他的超能力](https://www.kmjike.com/book/f28hep/)
-- [新来的室友令人不爽](https://www.kmjike.com/book/f28du3/)
-- [死遁后冰山O怀了我的崽](https://www.kmjike.com/book/f28a5h/)
-- [逝水](https://www.kmjike.com/book/f28547/)
-- [娇婚惯养](https://www.kmjike.com/book/f2815d/)
-- [宇智波的遗产](https://www.kmjike.com/book/f27ree/)
-- [我与龙傲天寿命共享](https://www.kmjike.com/book/f27mb1/)
+- [伪装纨绔，怎么成了名相](https://www.kmjike.com/book/f27vbk/)
+- [[足球]最佳前锋](https://www.kmjike.com/book/f27teu/)
 - [简单罗曼史](https://www.kmjike.com/book/f27kmk/)
-- [死遁后成了忍界白月光？](https://www.kmjike.com/book/f27ie9/)
+- [一枝枝怨](https://www.kmjike.com/book/f27ib4/)
 - [这谁的沙雕二次元心声！](https://www.kmjike.com/book/f27hnd/)
 - [老公是松散生命体](https://www.kmjike.com/book/f27hkv/)
 - [在魔法世界屯田争霸](https://www.kmjike.com/book/f27d5r/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kmjike.com/book/f275tl/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.kmjike.com/book/f274dd/)
 - [[足球]罗蜜第一志愿](https://www.kmjike.com/book/f274bp/)
 - [拯救世界从扮演反派开始](https://www.kmjike.com/book/f273b5/)
-- [八零恶毒后妈杀疯了](https://www.kmjike.com/book/f271lg/)
+- [和前女友的心上人he了](https://www.kmjike.com/book/f27285/)
 - [在民俗惊悚片被诸神庇护](https://www.kmjike.com/book/f26r6p/)
-- [贝利珠](https://www.kmjike.com/book/1g726d/)
-- [来日方长](https://www.kmjike.com/book/1g70do/)
+- [哥你不能不要我](https://www.kmjike.com/book/f26ig6/)
+- [被奇犽告白以后](https://www.kmjike.com/book/1g717s/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1298/index.md)

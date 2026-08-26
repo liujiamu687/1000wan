@@ -1,43 +1,36 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-08-21 03:21:30
+更新时间：2026-08-25 03:24:24
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
 - [棉花糖小说网](https://www.littlemissribbon.com/)
 
 ## 最新小说
+- [[封神]圣人生欲](https://www.littlemissribbon.com/book/5asiisf/)
+- [星际团宠小人鱼](https://www.littlemissribbon.com/book/5asiire/)
+- [夺友妻（女尊）](https://www.littlemissribbon.com/book/5asiirc/)
+- [你，后室管理员](https://www.littlemissribbon.com/book/5asiir2/)
+- [他要和我谈恋爱](https://www.littlemissribbon.com/book/5asiiqu/)
+- [高调装神，猥琐发育](https://www.littlemissribbon.com/book/5asiiqh/)
 - [高嫁之后](https://www.littlemissribbon.com/book/5asiip4/)
 - [纯爱宇智波基本恋爱法](https://www.littlemissribbon.com/book/5asiiob/)
 - [[希腊神话]蛇蛇神生美妙](https://www.littlemissribbon.com/book/5asiio6/)
-- [直男咒术师的限制级游戏](https://www.littlemissribbon.com/book/5asiilt/)
-- [从异世界穿回来后](https://www.littlemissribbon.com/book/5asiili/)
 - [某柯学的正义伙伴](https://www.littlemissribbon.com/book/5asfq7f/)
-- [啊？我是万人迷？［虫族］](https://www.littlemissribbon.com/book/5asfq5f/)
-- [男朋友买一送一](https://www.littlemissribbon.com/book/5asfebn/)
-- [全球进化，而我保持不变](https://www.littlemissribbon.com/book/h2totf/)
-- [她是反派的背景板母亲](https://www.littlemissribbon.com/book/h2tlr0/)
-- [沈助理又在隐藏他的超能力](https://www.littlemissribbon.com/book/h2ti9r/)
-- [新来的室友令人不爽](https://www.littlemissribbon.com/book/h2tgh3/)
-- [死遁后冰山O怀了我的崽](https://www.littlemissribbon.com/book/h2tdv5/)
-- [逝水](https://www.littlemissribbon.com/book/h2t6g3/)
-- [娇婚惯养](https://www.littlemissribbon.com/book/h2t5lg/)
-- [宇智波的遗产](https://www.littlemissribbon.com/book/h2svcj/)
+- [伪装纨绔，怎么成了名相](https://www.littlemissribbon.com/book/h2t1ua/)
+- [[足球]最佳前锋](https://www.littlemissribbon.com/book/h2t16d/)
 - [简单罗曼史](https://www.littlemissribbon.com/book/h2spe5/)
-- [我与龙傲天寿命共享](https://www.littlemissribbon.com/book/h2so4h/)
-- [死遁后成了忍界白月光？](https://www.littlemissribbon.com/book/h2sn43/)
+- [一枝枝怨](https://www.littlemissribbon.com/book/h2sm55/)
 - [老公是松散生命体](https://www.littlemissribbon.com/book/h2sm0t/)
 - [这谁的沙雕二次元心声！](https://www.littlemissribbon.com/book/h2skud/)
 - [在魔法世界屯田争霸](https://www.littlemissribbon.com/book/h2sedm/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.littlemissribbon.com/book/h2safo/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.littlemissribbon.com/book/h2s9nn/)
 - [拯救世界从扮演反派开始](https://www.littlemissribbon.com/book/h2s7ak/)
 - [[足球]罗蜜第一志愿](https://www.littlemissribbon.com/book/h2s77r/)
-- [八零恶毒后妈杀疯了](https://www.littlemissribbon.com/book/h2s2il/)
+- [和前女友的心上人he了](https://www.littlemissribbon.com/book/h2s3kh/)
 - [在民俗惊悚片被诸神庇护](https://www.littlemissribbon.com/book/h2rv7m/)
-- [来日方长](https://www.littlemissribbon.com/book/1mlu19/)
-- [贝利珠](https://www.littlemissribbon.com/book/5f09h/)
+- [哥你不能不要我](https://www.littlemissribbon.com/book/h2rkj7/)
+- [被奇犽告白以后](https://www.littlemissribbon.com/book/1mltdf/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1300/index.md)
